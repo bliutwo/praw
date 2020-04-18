@@ -18,7 +18,7 @@ comment.body
 
 Let's see how I can fit this into my script.
 
-- [ ] extract comments from submissions 
+- [x] extract comments from submissions 
 
 ## Useful links
 

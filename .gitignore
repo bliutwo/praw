@@ -5,5 +5,6 @@
 __pycache__/
 *.py[cod]
 
-# Ignore output
+# Ignore input and output
+*.in
 *.out
