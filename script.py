@@ -21,5 +21,11 @@ reddit = praw.Reddit(client_id=client_id,
                      password=password,
                      user_agent=user_agent)
 
-print(reddit.user.me())
-print(reddit.read_only)
+# print(reddit.user.me())
+# print(reddit.read_only)
+reddit.read_only = True
+# print(reddit.read_only)
+
+submission = reddit.submission(url='https://www.reddit.com/r/Futurology/comments/g2se2i/legislation_proposes_paying_americans_2000_a_month/fnnq6vw/?context=1')
+
+fp = open('comment.out', "w")

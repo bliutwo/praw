@@ -18,6 +18,9 @@ comment.body
 
 Let's see how I can fit this into my script.
 
+- [ ] extract comments from submissions 
+
 ## Useful links
 
 - [PRAW Documentation](https://praw.readthedocs.io/en/latest/)
+- [Comment Extraction and Parsing](https://praw.readthedocs.io/en/latest/tutorials/comments.html)
