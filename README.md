@@ -16,7 +16,7 @@ OR
 comment.body
 ```
 
-Let's see how I can fit
+Let's see how I can fit this into my script.
 
 ## Useful links
 
