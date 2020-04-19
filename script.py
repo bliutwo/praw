@@ -28,10 +28,19 @@ reddit.read_only = True
 
 # submission = reddit.submission(url='https://www.reddit.com/r/Futurology/comments/g2se2i/legislation_proposes_paying_americans_2000_a_month/fnnq6vw/?context=1')
 
-fp = open('comment.in', 'r')
-comment_id = fp.readline().rstrip()
+# fp = open('comment.in', 'r')
+# comment_id = fp.readline().rstrip()
+#
+# comment = reddit.comment(comment_id)
+# fp = open('comment.out', "w")
+# fp.write(comment.body)
+# fp.close()
 
-comment = reddit.comment(comment_id)
-fp = open('comment.out', "w")
-fp.write(comment.body)
+fp = open('username.in', 'r')
+username = fp.readline().rstrip()
 fp.close()
+
+with open('comments.out', "w", encoding="utf-8") as f:
+    for id in reddit.redditor(username).comments.new(limit=None):
+        comment = reddit.comment(id)
+        f.write(comment.body)
