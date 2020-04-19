@@ -34,3 +34,5 @@ Looks like I'll need to use [pushshift.io](https://pushshift.io/) to extract pos
 
 - [PRAW Documentation](https://praw.readthedocs.io/en/latest/)
 - [Comment Extraction and Parsing](https://praw.readthedocs.io/en/latest/tutorials/comments.html)
+- [Pushshift GitHub with helpful README](https://github.com/pushshift/api)
+- [Medium article about using Pushshift](https://medium.com/@RareLoot/using-pushshifts-api-to-extract-reddit-submissions-fb517b286563)
