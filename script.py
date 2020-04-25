@@ -23,11 +23,10 @@ reddit = praw.Reddit(client_id=client_id,
 
 reddit.read_only = True
 
-fp = open('username.in', 'r')
-username = fp.readline().rstrip()
-fp.close()
+fp = open('comment.in', 'r')
+comment_id = fp.readline().rstrip()
 
-with open('comments.out', "w", encoding="utf-8") as f:
-    for id in reddit.redditor(username).comments.new(limit=None):
-        comment = reddit.comment(id)
-        f.write(comment.body)
+comment = reddit.comment(comment_id)
+fp = open('comment.out', "w")
+fp.write(comment.body)
+fp.close()
