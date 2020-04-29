@@ -1,3 +1,237 @@
+He looked at the rhyme  
+with a smile and a sigh -  
+"It's hard," he remarked:  
+
+"... but I'll give it a try."
+
+/r/AskReddit/comments/g9gsuo/whats_the_worst_thing_to_say_to_the_person_next/fotr28l/
+----
+When I'm tapping my potential -  
+When I'm scrubbing up to rub -  
+When I'm sapping the essential  
+From the purple-headed club -  
+
+When I'm cooking up a lonesome -  
+When I take the solo stand -  
+When I'm playing on my ownsome,  
+And the tossing time's at hand -
+
+When I spring the knuckle shuffle -  
+When I start the old one-two -  
+When I make the flagpole ruffle,  
+And I milk the morning dew -   
+
+When I burn the pearly candle -  
+When I flog the throbbing log -  
+When I pump the salty handle,  
+Squeeze the smoke-stack of its smog -
+
+When I spank the chunky monkey -  
+When I give the snake a stroke -  
+When I turn the skin-flute funky,  
+And I whip the beaten yolk -
+
+When I do it,  
+get down to it,  
+Get on through it,  
+getting me -  
+When I court the cock and woo it -  
+
+Then I do it where I pee.
+
+/r/AskReddit/comments/g9gsuo/whats_the_worst_thing_to_say_to_the_person_next/fotn1hp/
+----
+Jim was smiling, homeward led -  
+Thinking what his buddy said -   
+Thinking what his friend could mean -  
+Thinking all the thoughts between.  
+
+Jim was grinning, homeward sent -  
+Thinking what his buddy meant -  
+Thinking what he'd asked with pride -  
+Thinking what his friend implied.  
+
+Jim was laughing, reached his door -  
+Swung it open, crossed the floor -  
+Beamed to hear his buddy's fun.
+
+Went upstairs and got his gun.
+
+/r/AskReddit/comments/g9gsuo/whats_the_worst_thing_to_say_to_the_person_next/fotli21/
+----
+When Little Timmy went to pee,  
+He turned to someone there -  
+And said: "... how *nice* it is to wee,  
+And drop your underwear!  
+
+"I Iove to feel it hanging low!  
+I live to feel the breeze!  
+I like to feel the heady flow  
+Of air around the knees!
+
+"And when my burning parts are cooled  
+In bathrooms 'cross the world -   
+I love to see the pee that's pooled  
+Around the sinkhole swirled!  
+
+"I'm sure you feel the same," he said,  
+And loosed his stream with pride.  
+
+But Little Timmy's pee was *red*.
+
+And Timmy fucking died.
+
+/r/AskReddit/comments/g9gsuo/whats_the_worst_thing_to_say_to_the_person_next/fotj97p/
+----
+She gave it her all,  
+but it came to no good.  
+
+She fought -  
+and she *fought*.
+
+For as long as she could.
+
+/r/AskReddit/comments/g90325/what_is_the_worst_thing_youve_seen_a_little_child/for5wqr/
+----
+When Little Timmy took a glass,  
+The magnifying kind -  
+'Twas not the thing that came to pass  
+He'd *hoped* inside his mind.  
+
+He'd dreamed of tiny streams of light -  
+A glowing glare, a blur -  
+A flaring flash of burning bright  
+Upon his kitty's fur!  
+
+He'd dreamed of smoking feline skin -  
+He'd dreamed of searing paws -  
+And with a tiny evil grin,  
+He'd dreamed of flaming claws!  
+
+And so he'd dreamed of blazing beams  
+To burn his pet with pride -  
+
+But Timmy's cat had *other* dreams.  
+
+And Timmy fucking died.
+
+/r/AskReddit/comments/g90325/what_is_the_worst_thing_youve_seen_a_little_child/foqwsus/
+----
+How I wish they'd kept my lizards,  
+Plastic molds of tiny wizards,  
+Shiny shadows, dust and druids,  
+Bottles full of frothy fluids,  
+Bibles blessed by pasty preachers,  
+Spines of slimy, spiny creatures,  
+Missing teeth and extra digits,  
+Monkey skulls and massive midgets,  
+Woken hopes and secrets spoken,  
+Bonds corrupted, pledges broken,  
+Half-imagined dreams of danger,  
+Teeny tiny slips of stranger,  
+Dry bananas, damp flamingoes,  
+Dirty dogs and crusty dingoes,  
+Strange emotions, nasty notions,  
+Pink and purple putrid potions,  
+Bits of paper, paper flowers,  
+Little spots of April showers,  
+Capers kept and framed for dreaming,  
+Sunlight through the window streaming,  
+Rotten, long-forgotten curses,  
+Sonnets, stanzas, rhymes and verses,  
+Lies, goodbyes and misdirections.  
+
+All of these were my collections.
+
+/r/AskReddit/comments/g8sp1p/what_collection_did_you_have_as_a_child_that/fopohuy/
+----
+They looked at the comment he wrote on the thread -  
+The line that he'd written,  
+the words that he'd said -  
+The feeling, the thought that they knew oh-so-well.
+
+And softly, they whispered:
+
+"... *2 me IRL.*"
+
+/r/AskReddit/comments/g8sp1p/what_collection_did_you_have_as_a_child_that/fopnwzn/
+----
+"Oh *sure*," he explained with a shake of his head -  
+"The world is a-flurry with fetish," he said -  
+"With too many heinous obsessions to pick -  
+A mountain of anus and pussy and dick -  
+
+"And *sure*," he explained with a shrug of distress -  
+"The world is a hellscape of horrors, I guess -  
+An image of dismal and dreadful delight -  
+A picture of terror to taste in the night -  
+
+"And *sure*," he explained with a smile and a sigh -  
+"The world is a nightmare for you and for I -  
+A vision of noxious,  
+nefarious stuff -  
+
+... at least we have cat girls.  
+
+For now, that's enough."
+
+/r/AskReddit/comments/g8jte3/everyones_sexual_fantasy_comes_true_tonight/fooe8rm/
+----
+"Be still, my beaten cock," he uttered,  
+"Back to sleep, my sweet," he muttered,  
+"Let the dearest dreamscapes seize you.
+
+... in the morning, I shall please you."
+
+/r/AskReddit/comments/g7ug3r/grab_the_closest_book_to_you_flip_to_page_112_the/fokb6um/
+----
+>I don't like where this is going.
+
+
+When Little Timmy met a girl,  
+He said: "I like to bake -  
+I love to give a bowl a swirl,  
+I live to frost a cake!  
+
+"How neat and sweet it is to feel  
+The love in every bite -  
+A crumb-encrusted mighty meal  
+Of brownie baked delight!  
+
+"To fill a tin from base to brim!  
+To make a cake!" he cried.
+
+But Timmy's girlfriend baked with *him.*
+
+And Timmy fucking died.
+
+/r/AskReddit/comments/g7ug3r/grab_the_closest_book_to_you_flip_to_page_112_the/fok5p4l/
+----
+>"Size Matters"
+
+Though your weenie might be weenie,  
+And your pecker is a speck -  
+And your todger is so teenie  
+That you often have to check -  
+
+Though your member might be meager,  
+And your willy might be wee -  
+Though you badger and beleaguer  
+Every lucky girl you see -  
+
+It's the motion in the ocean,  
+It's the magic in the wand -  
+And it isn't magic  potion,  
+It's the way you go beyond.     
+
+It's the rhyme and it's the wooing,  
+It's the feeling and the flow -  
+And it isn't what you're doing -   
+
+It's the way you do it, bro.
+
+/r/AskReddit/comments/g79cmj/what_do_you_think_is_scarier_the_idea_that_we_are/fogz3t5/
+----
 From star systems distant,  
 they came in the night.  
 They came in the dark  
@@ -30,10 +264,8 @@ and with arms that were red.
 
 "... they're *retarded*," they said.
 
-https://www.reddit.com/r/AskReddit/comments/g79cmj/what_do_you_think_is_scarier_the_idea_that_we_are/
-
+/r/AskReddit/comments/g79cmj/what_do_you_think_is_scarier_the_idea_that_we_are/fog849f/
 ----
-
 >I hoped he would be there on the day I got married and maybe be around for when I had kids, but unfortunately as much as we wish for things, sometimes they don't happen.
 
 I made a wish.  
@@ -59,8 +291,8 @@ That shone like silver shoals of fish.
 For after all,  
 I made a wish.
 
+/r/AskReddit/comments/g6e5kf/what_is_worth_every_penny/fo9k8o0/
 ----
-
 He clicked the post and then with glee,  
 He laughed and clapped and smiled to see  
 The bright, delightful words it said.
@@ -69,8 +301,8 @@ He read the next.
 
 ... he closed the thread.
 
+/r/AskReddit/comments/g602rg/yeah_sex_is_great_but_whats_an_equally_enjoyable/fo79fc5/
 ----
-
 >The "Compliment"
 
 "I look like a *sausage*," he said with a sigh -  
@@ -90,8 +322,8 @@ He waited in woe.
 
 She whispered: "… at least you've got *honesty*, bro."
 
+/r/AskReddit/comments/g602rg/yeah_sex_is_great_but_whats_an_equally_enjoyable/fo70o1w/
 ----
-
 She clicked the thread  
 and sighed  
 and read,  
@@ -102,8 +334,8 @@ From hope remote,
 
 ... I hope it's me."
 
+/r/AskReddit/comments/g5tdfd/you_get_one_wish_but_70_of_the_entire_population/fo66fuy/
 ----
-
 I am the redditective man.  
 I do the tings detectives can.  
 And wen I see,  
@@ -126,8 +358,8 @@ and wen I can -
 
 I am the redditective man.
 
+/r/AskReddit/comments/g5dd4c/what_is_an_unbelievable_true_fact/fo38dpb/
 ----
-
 When something deep inside me drops -  
 My eyes turn off,  
 my hearing stops -  
@@ -147,8 +379,8 @@ I simply heave a sigh, and then -
 
 I turn me off and on again.
 
+/r/AskReddit/comments/g5adui/jesus_said_he_who_lives_by_the_sword_dies_by_the/fo2ox1c/
 ----
-
 When Little Timmy learned the way,  
 He wasn't scared or sad -  
 He simply sighed and smiled to say:  
@@ -171,8 +403,8 @@ He welcomed in the handyman.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/g5adui/jesus_said_he_who_lives_by_the_sword_dies_by_the/fo2m9zp/
 ----
-
 He picked up his pen and he wrote with a smile:  
 *... he waited in shadows and after a while -*  
 *The breeze in the eaves was a phantom that cried -*  
@@ -194,8 +426,8 @@ The lights flickered out.
 
 The door closed behind.
 
+/r/AskReddit/comments/g5adui/jesus_said_he_who_lives_by_the_sword_dies_by_the/fo2jc14/
 ----
-
 >"I won't remember what they said, but I’ll always remember how they made me feel”.
 
 I remember you there,  
@@ -221,8 +453,8 @@ and perhaps...
 
 ... it's just better that way.
 
+/r/AskReddit/comments/g5ajmg/do_you_sometimes_feel_like_you_dont_remember_90/fo2hvih/
 ----
-
 "Did you hear," they whispered, keenly,  
 "So clandestine, so obscenely,  
 So unseemly, so maligning,  
@@ -244,8 +476,8 @@ Lit the spark on such a candle?
 
 ... 'twas a *scandal.*"
 
+/r/AskReddit/comments/g4rod9/people_no_longer_bound_by_their_non_disclosure/fnzi9yu/
 ----
-
 They looked at the filo,  
 the fondants, the cream -  
 The frosting, the donuts  
@@ -267,8 +499,8 @@ She whispered:
 
 "... the cake is a *lie*."
 
+/r/AskReddit/comments/g4rod9/people_no_longer_bound_by_their_non_disclosure/fnzhmcc/
 ----
-
 Do not rub the wooden dick.  
 Do not rub it calm or quick.  
 Do not rub it up or down.  
@@ -300,8 +532,8 @@ Do not rub it smooth or slick.
 
 Do not rub the wooden dick.
 
+/r/AskReddit/comments/g4nvle/when_youre_lying_in_bed_at_night_do_you_ever/fnz5j9m/
 ----
-
 'Tis a tribulation sour -  
 'Tis the burden of the meek -  
 To be standing in the shower  
@@ -321,8 +553,8 @@ Though you didn't want to wait -
 And you find yourself replying  
 When it's just *too fucking late.*
 
+/r/AskReddit/comments/g4nvle/when_youre_lying_in_bed_at_night_do_you_ever/fnyz0rq/
 ----
-
 "Let'sh shtart," she said,  
 and wiped her teeth,  
 Below, behind, between -  
@@ -343,8 +575,8 @@ He whispered:
 
 "... that'sh the shtuff."
 
+/r/AskReddit/comments/g4c2dt/what_if_your_teeth_were_naturally_flaccid_and_got/fnx62aa/
 ----
-
 She stood and she spoke, as she'd practiced before -  
 Determined and solemn and true to the core.  
 She spoke for all people, behind and ahead -  
@@ -352,8 +584,8 @@ And so it replied:
 
 "... *mamma mia!*" it said.
 
+/r/AskReddit/comments/g46krq/youre_tired_from_the_human_race_so_you_decide_to/fnw8hh5/
 ----
-
 When Little Putin saw them near,  
 Descending from the sky -  
 He didn't doubt,  
@@ -383,8 +615,8 @@ Alas, they didn't come in peace.
 
 And Putin fucking died.
 
+/r/AskReddit/comments/g46krq/youre_tired_from_the_human_race_so_you_decide_to/fnw074s/
 ----
-
 "But how should we do it?" said Zuton to Zorg -  
 "Infect them with COVID or send in the Borg?  
 And how do we seal or make certain their fate?"  
@@ -393,8 +625,8 @@ And how do we seal or make certain their fate?"
 
 "... we wait."
 
+/r/AskReddit/comments/g46krq/youre_tired_from_the_human_race_so_you_decide_to/fnvujh5/
 ----
-
 *He passed at last,*  
 *but such is fate.*  
 
@@ -402,8 +634,8 @@ And how do we seal or make certain their fate?"
 
 *And now he's late.*
 
+/r/AskReddit/comments/g3omlt/socialreligious_norms_aside_how_would_you_like/fnta78b/
 ----
-
 >How American
 
 It sailed on the waves like a vision of grace -  
@@ -412,8 +644,8 @@ He wiped at a tear and he watched it, afloat.
 
 He took out his gun and he shot at the boat.
 
+/r/AskReddit/comments/g3omlt/socialreligious_norms_aside_how_would_you_like/fnt9guj/
 ----
-
 Whenever I miss you -  
 and often I do -  
 I walk to the garden to be there with you.  
@@ -425,8 +657,8 @@ I sit in the shade of your branches and smile.
 
 ^^^:)
 
+/r/AskReddit/comments/g3omlt/socialreligious_norms_aside_how_would_you_like/fnt39kx/
 ----
-
 Put snacks in my fingers;  
 put tastes in my toes -  
 Put candies and nibbles and cakes in my nose!  
@@ -440,16 +672,16 @@ Then hang me and strike me and smile when you've struck!
 And since I'm departed,  
 I won't give a *fuck*.
 
+/r/AskReddit/comments/g3omlt/socialreligious_norms_aside_how_would_you_like/fnt0zpz/
 ----
-
 I could change my constitution,  
 I could alter who I'll be -  
 But I've made my resolution.
 
 And I'm happy being me.
 
+/r/AskReddit/comments/g310ac/we_are_nearly_13rd_of_the_way_into_2020_how_is/fnp4pkw/
 ----
-
 If money is fleeting, and speedily spent -  
 Depleting completely by dollar and cent -  
 Diminishing, draining, and quick to depart -  
@@ -481,8 +713,8 @@ You endlessly battle to balance your worth -
 
 Then wait for a virus to fuck up the Earth.
 
+/r/AskReddit/comments/g310ac/we_are_nearly_13rd_of_the_way_into_2020_how_is/fnowivr/
 ----
-
 He's shakin',  
 he's quakin',  
 his heart's beatin' fast -  
@@ -497,8 +729,8 @@ He says:
 
 "... this is *why* I am quitting caffeine."
 
+/r/AskReddit/comments/g310ac/we_are_nearly_13rd_of_the_way_into_2020_how_is/fnovyt6/
 ----
-
 "I went outside.  
 I saw a cat.  
 I saw a man who wore a hat.  
@@ -521,8 +753,8 @@ I went outside for what I lack.
 
 ... I don't think I'll be going back."
 
+/r/AskReddit/comments/g310ac/we_are_nearly_13rd_of_the_way_into_2020_how_is/fnoum5a/
 ----
-
 He stares at himself in the mirror below -  
 A haunting reflection of sadness and woe.  
 A pitiful painting of jiggle and chins -  
@@ -531,8 +763,8 @@ He stares at the mirror.
 
 And so it begins.
 
+/r/AskReddit/comments/g2o2lc/mcdonalds_now_sells_sad_meals_what_items_would/fnnj8ps/
 ----
-
 "I see what you're saying," she said with respect -  
 "Your reasons and claims and the ways they connect -  
 The grounds for your thinking, the how, and the why -  
@@ -545,8 +777,8 @@ What say you?" she pondered.
 
 "… how *DARE* you?" he said.
 
+/r/AskReddit/comments/g2csg5/what_fact_is_ignored_generously/fnlbj79/
 ----
-
 >"Confirmation Bias"
 
 "It's nonsense!  
@@ -559,16 +791,16 @@ He lunged for the latter.
 
 "I *knew* it!" he said.
 
+/r/AskReddit/comments/g2csg5/what_fact_is_ignored_generously/fnlay98/
 ----
-
 "How *dare* you correct me?" he said with dismay -  
 "I'm skilled and *experienced*, seasoned I say!  
 I've worked here for *ages*," he said with a smile.  
 
 Which meant he'd been doing it wrong for a while.
 
+/r/AskReddit/comments/g2csg5/what_fact_is_ignored_generously/fnlagd5/
 ----
-
 They watched in confusion,  
 one deaf,  
 and one not -  
@@ -577,8 +809,8 @@ The president spoke and he gestured a lot.
 
 The other responded: "... and neither do I."
 
+/r/AskReddit/comments/g1borc/sign_language_users_of_reddit_what_is_a_common/fnf40rk/
 ----
-
 "From instant to instant,  
 and often in life -  
 There's moments of heartache and moments of strife.  
@@ -594,8 +826,8 @@ They sat there in silence.
 
 "... you're fired," he said.
 
+/r/AskReddit/comments/g12ivx/people_who_posted_their_story_on_reddit_and_the/fndvyoa/
 ----
-
 >... and was glad that his story might give some degree of hope to others.
 
 Remember this:  
@@ -605,8 +837,8 @@ when clouds descend in darker skies -
 
 tomorrow, too, the sun will rise.
 
+/r/AskReddit/comments/g12ivx/people_who_posted_their_story_on_reddit_and_the/fndmdd8/
 ----
-
 The crowd were a-hush with excitement divine -  
 Expectant and keen as he walked to the line -  
 Prepared as he turned to his purpose to wait -  
@@ -627,8 +859,8 @@ an angel of grace.
 
 ... it bounced off the hoop and back into his face.
 
+/r/AskReddit/comments/g12ivx/people_who_posted_their_story_on_reddit_and_the/fndlo4a/
 ----
-
 "I love you -  
 I love you from here to the stars -  
 I love you to Saturn and Pluto and Mars -  
@@ -638,8 +870,8 @@ I love you forever.
 
 ... and now I love *you*."
 
+/r/AskReddit/comments/g0weuc/identical_twins_of_reddit_who_own_a_pet_after/fncsnit/
 ----
-
 The rarest of puppers,  
 the goodest of boys -  
 The wisest of waggers,  
@@ -649,8 +881,8 @@ and beauty and grace -
 
 He knows when a stranger is wearing my face.
 
+/r/AskReddit/comments/g0weuc/identical_twins_of_reddit_who_own_a_pet_after/fnco5p1/
 ----
-
 He said: "... you'll be buying me beers when you've missed!"  
 He said: "... have a go! Take a shot! I insist!"  
 He said: "... take a chance, you can cover the cost!"  
@@ -660,8 +892,8 @@ He said: "... let it fly!"
 
 ... and he lost.
 
+/r/AskReddit/comments/g0ij6y/has_someone_ever_challenged_you_to_something_that/fna7wgr/
 ----
-
 >"How are you so good at this stupid game?" Practice, my dude. Years of practice...
 
 "I'll tell you why,  
@@ -678,8 +910,8 @@ You'll soon be...
 
 ... kinda good."
 
+/r/AskReddit/comments/g0ij6y/has_someone_ever_challenged_you_to_something_that/fna1wem/
 ----
-
 He says, with a laugh of delight and a tear -  
 "I *do* like tabasco.  
 I *know* I like beer.  
@@ -689,8 +921,8 @@ He lifts his burrito.
 
 He says: "... here we go."
 
+/r/AskReddit/comments/fzncbg/what_is_one_memory_that_never_fails_to_make_you/fn5uknb/
 ----
-
 There she waited so divinely,  
 Fair and fancy-free, and finely  
 So refined in pure perfection;  
@@ -708,8 +940,8 @@ How I love t-
 
 ... then she farted.
 
+/r/AskReddit/comments/fz6655/whats_your_most_embarrassing_sex_story/fn3spsx/
 ----
-
 >... the whole concept of existence just confuses the fuck out of me...
 
 "But *why*?" he enquired with a shake of his head -  
@@ -730,8 +962,8 @@ She pondered a moment.
 
 She said: "... I dunno."
 
+/r/AskReddit/comments/fz5363/what_do_you_genuinely_not_understand/fn3m64p/
 ----
-
 "It's coming in Winter or Fall 'twenty-three -  
 A picture we *know* that you're waiting to see!  
 Created by Netflix," the voiceover said.  
@@ -740,8 +972,8 @@ Created by Netflix," the voiceover said.
 
 ... and it's *red*."
 
+/r/AskReddit/comments/fyyj8z/what_movie_did_you_start_watching_then_said_fuck/fn2xze2/
 ----
-
 "But momma," he whispered, "I don't understand" -  
 Until he caught sight of the phone in her hand.  
 He stared at it, captured and caught out of luck.
@@ -750,8 +982,8 @@ He looked at his mother.
 
 He said to her: "... fuck."
 
+/r/AskReddit/comments/fydxi1/people_who_type_curse_words_as_f_or_anything/fn0dfxb/
 ----
-
 >People will corrupt about anything that has to do with power (and/or money).
 
 You start with the best of intentions, you do -  
@@ -773,8 +1005,8 @@ You grasp for a better tomorrow.
 
 For you.
 
+/r/AskReddit/comments/fyccd5/lgbt_religious_people_how_do_you_reconcile_your/fmzglo1/
 ----
-
 >"The Emu War"
 
 "... but in darkness I remember -  
@@ -807,8 +1039,8 @@ For I dream of what was true -
 On that morning of November  
 Back in nineteen-thirty-two."
 
+/r/AskReddit/comments/fxr408/what_is_something_about_your_country_youre/fmwtkh4/
 ----
-
 He picked on the post,  
 and he clicked on the thread -  
 He saw what was written,  
@@ -820,16 +1052,16 @@ He narrowed his eyes and he said:
 
 "... *clever girl*."
 
+/r/AskReddit/comments/fxr408/what_is_something_about_your_country_youre/fmwpbe3/
 ----
-
 "I am the *best*,"  
 he whispered, sad.  
 
 He won the game  
 and lost his dad.
 
+/r/AskReddit/comments/fx5hn4/which_conspiracy_theory_do_you_believe_is_true/fmt86rx/
 ----
-
 "So you say that you're a dancer -  
 But we only want to know -  
 Have you had a little cancer?  
@@ -861,8 +1093,8 @@ And we'd love to hear your story…
 
 If it boosts a bottom line."
 
+/r/AskReddit/comments/fx5hn4/which_conspiracy_theory_do_you_believe_is_true/fmswyw2/
 ----
-
 When the wedding cake was finished,  
 And the party part was through -  
 With their bank accounts diminished,  
@@ -878,8 +1110,8 @@ They expressed a little shame -
 That they ever chose to marry  
 Just because they shared a *name.*
 
+/r/AskReddit/comments/fwnopa/zookeepers_of_reddit_how_are_the_animals_acting/fmqcget/
 ----
-
 The things I saw -  
 the things I've seen -  
 the things I saw  
@@ -890,8 +1122,8 @@ observed by me -
 ... are all the things  
 I can't unsee.
 
+/r/AskReddit/comments/fwnopa/zookeepers_of_reddit_how_are_the_animals_acting/fmqb3ou/
 ----
-
 He stared out the window,  
 and there he espied -  
 A man with no arm,  
@@ -903,8 +1135,8 @@ He pulled out his wallet.
 
 He whispered: "... oh no."
 
+/r/AskReddit/comments/fwnopa/zookeepers_of_reddit_how_are_the_animals_acting/fmq9fjo/
 ----
-
 She looked at him, muddled, befuddled, perplexed -  
 Disordered, confused and bewildered and vexed -  
 She pondered his words for they came to her slow.   
@@ -913,8 +1145,8 @@ She softly repeated:
 
 "... I look like your *toe*?"
 
+/r/AskReddit/comments/fwkhtq/what_is_the_worst_pick_up_line_that_you_have/fmp9cg2/
 ----
-
 "I can not do it," checkout said -  
 "I only do this thing instead.  
 I have to, should do, must admit -  
@@ -934,8 +1166,8 @@ I can not do it.
 
 ... now I can."
 
+/r/AskReddit/comments/fwhjoc/what_small_little_thing_can_enrage_you/fmoy3ki/
 ----
-
 >I definitely have mindlessly watched a few just because they are so dumb...
 
 He sat with a bottle and paper and glue -  
@@ -946,8 +1178,8 @@ He faced his creation.
 
 He said: "... this is *shit.*"
 
+/r/AskReddit/comments/fwgh81/what_common_myth_can_be_disproved_in_seconds/fmot6yg/
 ----
-
 There is  
 a hole  
 inside of me,  
@@ -961,8 +1193,8 @@ It isn't fair.
 
 There used to be a penis there.
 
+/r/AskReddit/comments/fvsuu4/what_is_a_feature_that_is_inarguably_hot/fml7v53/
 ----
-
 "I am an accountant.  
 I like to account.  
 I do it for all and for any amount.  
@@ -973,8 +1205,8 @@ I'm good at accounting."
 
 She whispered: "... that's hot."
 
+/r/AskReddit/comments/fvsuu4/what_is_a_feature_that_is_inarguably_hot/fml0m18/
 ----
-
 >I hear you sister!
 
 "I say with pride:  
@@ -1003,8 +1235,8 @@ It's not a *job*...
 
 ... but state of mind."
 
+/r/AskReddit/comments/fvosb4/what_famous_quotes_from_history_get_better_by/fmkgxeu/
 ----
-
 'Tis a tribulation sour -  
 'Tis the burden of the few -  
 To be standing in the shower  
@@ -1016,8 +1248,8 @@ As you whisper softly:
 
 "...*why*?"
 
+/r/AskReddit/comments/fvpwmb/what_post_exploded_for_no_reason/fmkf9m5/
 ----
-
 "You dumb motherfucker," she whispered inside -  
 "You laughable *moron*," she pondered with pride.  
 "Your conduct is dismal -  
@@ -1036,16 +1268,16 @@ She smiled and responded:
 
 "... you have a *great* day."
 
+/r/AskReddit/comments/fvf55r/whats_a_friendlier_alternative_to_fuck_you/fmiqgc9/
 ----
-
 But none could match the years of dread  
 Which few could e'er forget -  
 Till twenty-*one* arrived and said:  
 
 "... you ain't seen *nothin'* yet."
 
+/r/AskReddit/comments/fvd06w/you_wake_up_its_2050_what_do_you_google_first/fmiadfp/
 ----
-
 He searched for his name with a soft little sigh -  
 A hope in his heart and a tear in his eye -  
 A dream that he'd see it in stories abound -  
@@ -1053,8 +1285,8 @@ He looked for the answer.
 
 It said: "... nothing found."
 
+/r/AskReddit/comments/fvd06w/you_wake_up_its_2050_what_do_you_google_first/fmi49qs/
 ----
-
 Remember this:  
 that come what may,  
 no matter how you feel today,  
@@ -1075,8 +1307,8 @@ The sun goes up.
 
 But some things end.
 
+/r/AskReddit/comments/fvd06w/you_wake_up_its_2050_what_do_you_google_first/fmi23g8/
 ----
-
 Though some people call us homos  
 'Cause we kiss each other quick -  
 We ain't homos,  
@@ -1085,8 +1317,8 @@ we just bromos.
 We just homies,  
 suckin' dick.
 
+/r/AskReddit/comments/fv89gh/what_seemingly_innocent_action_gives_off_a_sexual/fmhh7f8/
 ----
-
 "This just isn't *friendly* -  
 this just isn't *fair*.  
 I *will not* accept this -  
@@ -1098,8 +1330,8 @@ And *I* deserve better.
 
 And soon she will *see*."
 
+/r/AskReddit/comments/fuupql/what_is_your_tinder_horror_story/fmf8q6c/
 ----
-
 His wife was fine and fair and true,  
 Designed divine of face -  
 His heart, his home, his children too,  
@@ -1118,8 +1350,8 @@ He sighed aloud and softly said:
 
 "... where *did* it all go wrong?"
 
+/r/AskReddit/comments/fuupql/what_is_your_tinder_horror_story/fmf76v8/
 ----
-
 He looked at the baggies of frozen release -  
 The flow from the phallus -  
 the ol' sausage grease -  
@@ -1128,8 +1360,8 @@ the aqua divine -
 
 "But which," he remarked in the silence, "is *mine*...?"
 
+/r/AskReddit/comments/fuupql/what_is_your_tinder_horror_story/fmf71zc/
 ----
-
 When painful thoughts pervade my mind,  
 And strive to stain the space behind -  
 *That life is hard and ends in death -*  
@@ -1137,8 +1369,8 @@ And strive to stain the space behind -
 
 I take a breath.
 
+/r/AskReddit/comments/fus0ib/what_is_something_everyone_needs_to_do_in_their/fmey035/
 ----
-
 >"What is something everyone needs to do in their life?"
 
 Go do what you want to.  
@@ -1174,8 +1406,8 @@ with good luck.
 As long as you're happy,  
 then who gives a fuck?
 
+/r/AskReddit/comments/fus0ib/what_is_something_everyone_needs_to_do_in_their/fmemzc1/
 ----
-
 >Used a salad fork with his entree...
 
 He looked with distress where they stared from above -  
@@ -1187,8 +1419,8 @@ He turned to his salad.
 
 They said: "... *not like that.*"
 
+/r/AskReddit/comments/fuee7e/exinmates_of_reddit_what_was_the_stupidest_thing/fmcmwd9/
 ----
-
 >I assume he had watched a lot of movies cuz he figured he'd fight the biggest guy on the range...
 
 When Little Timmy stole a car -  
@@ -1208,8 +1440,8 @@ And loudly, proudly cried:
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/fuee7e/exinmates_of_reddit_what_was_the_stupidest_thing/fmcle90/
 ----
-
 "Ben and Bev and Mike and Eddie,  
 Richie, Stanley - *Georgie's ready!*  
 How's it goin'?  
@@ -1231,8 +1463,8 @@ Sailin' through
 the silence,  
 *floatin'...*
 
+/r/AskReddit/comments/fudyj2/how_long_is_an_appropriate_amount_of_time_to_wait/fmcjzxz/
 ----
-
 >A few years ago, when I found myself destitute, I spent one night down there. That night I witnessed...
 
 When all my chances come and go,  
@@ -1261,8 +1493,8 @@ It seems there's always more to fall.
 
 I wonder: what's the point at all?
 
+/r/AskReddit/comments/fu5ac0/exhomeless_redditors_what_was_the_scariest_thing/fmazr0f/
 ----
-
 He smiled with a sense of achievement and pride -  
 A feeling of something accomplished inside -  
 A pleasure to treasure that no man could rob.  
@@ -1271,8 +1503,8 @@ He whispered, delighted:
 
 "... I did a *good job.*"
 
+/r/AskReddit/comments/ftm0sb/what_should_you_say_after_sex/fm8cer5/
 ----
-
 >Everyone fucks different...
 
 Some people fuck swiftly,  
@@ -1303,8 +1535,8 @@ You can't do it wrong -
 
 ... but you can do it right.
 
+/r/AskReddit/comments/ftm0sb/what_should_you_say_after_sex/fm8bspv/
 ----
-
 I finished.  
 We finished, and faded to black.  
 The urge had departed.  
@@ -1328,8 +1560,8 @@ I wiped at a tear with a tissue, and then -
 
 I asked: "... are you ready to do it again?"
 
+/r/AskReddit/comments/ftm0sb/what_should_you_say_after_sex/fm7yv6y/
 ----
-
 And he sat there, so deflated,  
 With his sentence incomplete -  
 For he'd falteringly waited  
@@ -1350,8 +1582,8 @@ He woul-
 
 "... please continue, bro."
 
+/r/AskReddit/comments/ftk07k/whats_a_really_awkward_situation_that_everyone/fm7kh0a/
 ----
-
 I have dreamt of a space  
 In a faraway place,  
 Under light from the silvery stars -  
@@ -1380,8 +1612,8 @@ But a dream is a dream, nothing more,
 
 But a dream is a dream, nothing more.
 
+/r/AskReddit/comments/fsy0kx/loners_of_reddit_what_was_your_way_of_dealing/fm46vk9/
 ----
-
 When Little Squiddy made a meal  
 Of all his favored fish -  
 He said: "Oh how I love to feel  
@@ -1399,8 +1631,8 @@ But Squiddy's meal was rather big.
 
 And Squiddy fucking died.
 
+/r/AskReddit/comments/fsc8yd/what_is_a_completely_random_fact/fm159ee/
 ----
-
 He picked up his paper, his ruler and pen -  
 He put down the paper and ruler again.  
 He frowned in the silence.  
@@ -1410,8 +1642,8 @@ He picked up his hamster.
 
 He said: "... *let's begin*."
 
+/r/AskReddit/comments/fruade/what_is_something_about_yourself_that_sounds/flyb3rl/
 ----
-
 You're my comfort and my pleasure,  
 You're the apple of my eye!  
 You're as precious as a treasure,  
@@ -1428,8 +1660,8 @@ And you might just say you love me -
 
 ... but I think I love you more.
 
+/r/AskReddit/comments/fruade/what_is_something_about_yourself_that_sounds/fly7w36/
 ----
-
 And though I strained with all my might,  
 I could not look,  
 except for right.  
@@ -1447,8 +1679,8 @@ I whispered softly:
 
 "... fuck you, mum."
 
+/r/AskReddit/comments/fruade/what_is_something_about_yourself_that_sounds/fly4btp/
 ----
-
 When Little Timmy's wife declined  
 His silver ring and gem -  
 "I want a *change*," his wife opined,  
@@ -1467,8 +1699,8 @@ But Timmy's wife meant something *more*.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/frk5tn/people_who_work_for_social_media_companies_that/flwq9e5/
 ----
-
 >Sometimes it's good not to be a tattle tale!
 
 He places down the phone again.  
@@ -1482,8 +1714,8 @@ With hope and pride and glee -
 
 ... your secret's safe with me."
 
+/r/AskReddit/comments/frk5tn/people_who_work_for_social_media_companies_that/flwm6j0/
 ----
-
 >The blacklists last for miles. Racial slurs everywhere, creepy shit about literally any female on screen.
 
 The screen was bright against the night,  
@@ -1510,8 +1742,8 @@ The words it held in store:
 
 And so he posts no more.
 
+/r/AskReddit/comments/frk5tn/people_who_work_for_social_media_companies_that/flwkbp3/
 ----
-
 "The Nurse"
 
 Her arms are stiff.  
@@ -1559,8 +1791,8 @@ Whatever for?
 
 For *us*.
 
+/r/pics/comments/frijzb/my_daughter_is_a_cna_on_the_frontlines_of_covid19/flwiwf8/
 ----
-
 >Everyone panic buys toilet paper.
 
 Sick of sticking fecal matter?  
@@ -1587,8 +1819,8 @@ and pick another!
 
 Buy yourself a *bidet*, brother.
 
+/r/AskReddit/comments/fr4qr7/we_create_a_sentient_artificial_intelligence_and/flu4gnf/
 ----
-
 When Little Timmy saw a goose,  
 Inside a paddock penned -  
 He softly shook the breadcrumbs loose  
@@ -1606,8 +1838,8 @@ He watched it slowly turn to him.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/fqjznh/if_you_were_a_villain_and_could_choose_any_animal/flr8fye/
 ----
-
 >If you litter, a bird will poop on your windshield.
 
 Some heroes wear leather.  
@@ -1628,8 +1860,8 @@ When criminals meet while you sleep in your bed -
 
 He swoops from the rooftops and poops on their head.
 
+/r/AskReddit/comments/fq3h83/you_have_been_appointed_gosh_gods_assistant_for/florms9/
 ----
-
 >I fired myself before that ass hat boss would do. Those employees were even more evil.
 
 "Fuck *you*," he said,  
@@ -1661,8 +1893,8 @@ he said,
 
 "... fuck *you*."
 
+/r/AskReddit/comments/fpyb6k/whats_your_fuck_this_i_quit_story/flokcfl/
 ----
-
 "Friends and neighbours -  
 sons and daughters -  
 Shout *salut* to soapy waters!  
@@ -1682,8 +1914,8 @@ So, 'so long' to heinies heinous!
 
 Love your charming *Charmin* anus!"
 
+/r/AskReddit/comments/fpue1w/you_timetravel_from_the_year_2018_to_2020_you_go/flnor39/
 ----
-
 >I'd probably think my time machine caused a paradox that just killed everyone and I'll freak out until I notice all the toilet paper is gone and SOMEONE has to be behind that...
 
 The year is Twenty-Eighty-Five.  
@@ -1703,8 +1935,8 @@ They trade in toilet paper sheets.
 
 They do not touch their face.
 
+/r/AskReddit/comments/fpue1w/you_timetravel_from_the_year_2018_to_2020_you_go/flnegyf/
 ----
-
 >still staring into the horizon...
 
 You pick your perfect point of view;  
@@ -1724,8 +1956,8 @@ You never learn you might be wrong.
 
 You never learn at all.
 
+/r/AskReddit/comments/fppuzz/italians_of_reddit_how_do_you_feel_about_the_way/flmsfnc/
 ----
-
 He calls me "bud".  
 
 I call him "bro."  
@@ -1756,8 +1988,8 @@ He feels the same.
 
 I never really asked his name.
 
+/r/AskReddit/comments/fpb2az/what_about_the_opposite_sex_confuses_you_the_most/flkg8gg/
 ----
-
 When the world is all excited,  
 And I think I need the space -  
 Then I leave it there delighted,  
@@ -1779,8 +2011,8 @@ If there isn't any slowing...
 
 Then I'll go a little strange.
 
+/r/AskReddit/comments/foug6e/what_are_you_doing_to_better_yourself_during_this/flhk9m4/
 ----
-
 "We just want the world to be *safer*," they said -  
 "And endlessly better for ages ahead!  
 We just want the world to be *safer* -  
@@ -1788,8 +2020,8 @@ that's *it.*
 
 ... or maybe we just want to look through your shit."
 
+/r/AskReddit/comments/foslu3/if_covid19_wasnt_dominating_the_news_right_now/flhj1wt/
 ----
-
 >"something to be hopeful about"
 
 When storms arrive in darker skies;  
@@ -1810,8 +2042,8 @@ For there remains a hope or two.
 
 And storms are made to end.
 
+/r/AskReddit/comments/foslu3/if_covid19_wasnt_dominating_the_news_right_now/flheab7/
 ----
-
 >My dad was more like he had it made, he just had to not fuck it up
 
 In life, you won't be always right.  
@@ -1840,8 +2072,8 @@ But ended down and out of luck -
 
 There's certain things you can't *unfuck*.
 
+/r/AskReddit/comments/fo40gu/people_who_grew_up_rich_but_turned_out_poor_what/fld96np/
 ----
-
 It came through the air on a river of smell -  
 A gift from the feculent fissures of Hell -  
 A harvest of horror;  
@@ -1862,8 +2094,8 @@ I paused on his penis.
 
 I thought: "... is this it?"
 
+/r/AskReddit/comments/fn29sc/women_of_reddit_what_was_going_through_your_mind/fl7u3e3/
 ----
-
 "Will you be my friend?" he pondered,  
 Pictured paths they might have wandered,  
 Filled with pride and full of pleasure,  
@@ -1880,8 +2112,8 @@ Ever glad and happy-hearted?"
 
 "... no," he said, and swiftly parted.
 
+/r/AskReddit/comments/fmx0ag/window_washers_of_reddit_what_is_the_most/fl7220v/
 ----
-
 >Forced study of pandemics.
 
 "A virus is coming, and soon it will spread -  
@@ -1890,8 +2122,8 @@ He told them the means and the method and then -
 
 They simply ignored him and did it again.
 
+/r/AskReddit/comments/fmeine/on_april_1st_everyone_gets_a_text_on_their_phone/fl47iww/
 ----
-
 When the sun's set to set in a sweet season's sky -  
 When the stars shimmer down, and the moon's passing by -  
 When the summer-wind skips, when it blows in the trees -  
@@ -1912,8 +2144,8 @@ When the tide travels in, and the sunlight has set -
 I will miss you forever,  
 and never forget.
 
+/r/AskReddit/comments/fmeine/on_april_1st_everyone_gets_a_text_on_their_phone/fl45j1s/
 ----
-
 When Little Timmy woke one day,  
 And donned his fluffy robe -  
 Coronavirus made its way  
@@ -1936,8 +2168,8 @@ But Yellowstone erupted then.
 
 And everybody died.
 
+/r/AskReddit/comments/flntei/what_very_realistic_event_could_happen_to_make/fkzvaxv/
 ----
-
 The Maker was sitting in silence up high -  
 He lowered his gaze and he stared with a sigh.  
 "I'm not really sure a disease is enough -  
@@ -1958,8 +2190,8 @@ He smiled in the silence.
 
 "... I've *got* it," he said.
 
+/r/AskReddit/comments/flntei/what_very_realistic_event_could_happen_to_make/fkzv7uc/
 ----
-
 >I don't doubt for a moment that the crematorium disposed of those items, but at least I knew I did right by him.
 
 I brought you all your finest things -  
@@ -1969,8 +2201,8 @@ your lures on silver strings.
 
 I hope I did you right.
 
+/r/AskReddit/comments/fjp50z/funeral_home_employeesowners_of_reddit_whats_the/fkoo3tv/
 ----
-
 >Family had a great sense of humor!
 
 If I should pick my final fruit,  
@@ -1997,8 +2229,8 @@ I won't be sad.
 
 I'm gone.
 
+/r/AskReddit/comments/fjp50z/funeral_home_employeesowners_of_reddit_whats_the/fkomty1/
 ----
-
 The man whose head is full of things,  
 Like paper kites and strips of strings -  
 The man with hues of reds and blues,  
@@ -2013,8 +2245,8 @@ The store, the stash that's his to give -
 
 Is he, alas, who *must not live.*
 
+/r/AskReddit/comments/fj3u17/at_3_pm_tomorrow_every_electronic_device_goes_to/fkll8vb/
 ----
-
 And life would be better -  
 And life would be grand -  
 And life would be all  
@@ -2025,8 +2257,8 @@ A life made for living.
 
 But Adam's a *bitch.*
 
+/r/AskReddit/comments/fiyxg4/which_fictional_character_did_you_fall_for/fkkgar9/
 ----
-
 There's nothing more I like to do  
 than drift to sleep and dream of *you*.  
 I think of *you*,  
@@ -2044,8 +2276,8 @@ And then I wake.
 
 And then you're gone.
 
+/r/AskReddit/comments/fiyxg4/which_fictional_character_did_you_fall_for/fkkdux8/
 ----
-
 My girl is fine,  
 my girl is fair.  
 My girl is short with auburn hair.  
@@ -2072,8 +2304,8 @@ She's all I need.
 
 ... she isn't real.
 
+/r/AskReddit/comments/fiyxg4/which_fictional_character_did_you_fall_for/fkk60xb/
 ----
-
 >6/10
 
 The colours were indigo, purple and blue -  
@@ -2098,8 +2330,8 @@ I slipped into darkness.
 
 Would not recommend.
 
+/r/AskReddit/comments/fikjbd/what_drug_did_you_take_once_and_thought_nope/fkid7g9/
 ----
-
 >*Addiction.*
 
 "It won't be me,"  
@@ -2113,8 +2345,8 @@ It won't be me."
 
 And then it's you.
 
+/r/AskReddit/comments/fikjbd/what_drug_did_you_take_once_and_thought_nope/fkicbdt/
 ----
-
 When Little Timmy made a deal,  
 And bought himself some *Spice* -  
 He wore a smile and said: "I feel  
@@ -2132,8 +2364,8 @@ Alas, it wasn't *nice* at all.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/fikjbd/what_drug_did_you_take_once_and_thought_nope/fki6ls5/
 ----
-
 "Your phone is displaying the *gnarliest* porn -  
 With tentacles heinous and anuses torn!  
 With horses and hearses and cursed amputees!  
@@ -2146,8 +2378,8 @@ He nodded his head.
 
 "... that's so absolutely what's happened," he said.
 
+/r/AskReddit/comments/fie8qz/your_best_friend_is_faking_being_asleep_and_you/fkh98i4/
 ----
-
 Crit me down  
 and crit me up -  
 Crit me in this silver cup.  
@@ -2171,8 +2403,8 @@ Whisper softly...
 
 "... *crit on me*."
 
+/r/AskReddit/comments/fhz6at/people_who_had_no_sex_education_at_all_and_had/fker7v2/
 ----
-
 >"The Day God Created Mosquitoes"
 
 When God was enjoying a wonderful day -  
@@ -2220,8 +2452,8 @@ He whispered with doubt:
 
 "I'm sure that it's nothing to worry about..."
 
+/r/AskReddit/comments/fh8zoq/you_have_died_and_find_that_instead_of_going_to/fka5jdq/
 ----
-
 >You keep finding venomous spiders in your underwear drawer.
 
 When Little Timmy paused to pick  
@@ -2246,8 +2478,8 @@ He didn't see the *spider* there.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/fgwzxp/what_are_some_signs_that_a_relationship_has_run/fk81fgf/
 ----
-
 I am the Masturbator.  
 I want and wait for none.  
 They tell me: "*Do it later -*  
@@ -2269,8 +2501,8 @@ There's surely no one greater.
 
 For I have mastured it.
 
+/r/AskReddit/comments/fgf7yv/if_you_could_get_100_per_jerkoff_for_life_or_get/fk4qiow/
 ----
-
 At the edge,  
 at the edge,  
 where the air is thin,  
@@ -2298,8 +2530,8 @@ At the edge,
 at the edge,  
 where the air is *thin.*
 
+/r/AskReddit/comments/ffcau3/when_did_the_popular_kids_life_fall_apart_in_a/fjy3hoy/
 ----
-
 >That's called an inside the park home run.
 
 "But *of course*," he opined,  
@@ -2331,8 +2563,8 @@ He nodded his head.
 
 "... it's sticking a foot from your asshole," he said.
 
+/r/AskReddit/comments/ffcau3/when_did_the_popular_kids_life_fall_apart_in_a/fjxyyce/
 ----
-
 The thing about living -  
 the thing about life -  
 It's doubt  
@@ -2362,8 +2594,8 @@ and it's fair -
 
 The thing about life is it just doesn't care.
 
+/r/AskReddit/comments/ffcau3/when_did_the_popular_kids_life_fall_apart_in_a/fjxsxud/
 ----
-
 Be rude and unpleasant and soon you will find -  
 That nobody *cares* when you're speaking your mind.  
 Your words will be many -  
@@ -2379,8 +2611,8 @@ They won't really miss you.
 
 They'll simply move on.
 
+/r/AskReddit/comments/ffcau3/when_did_the_popular_kids_life_fall_apart_in_a/fjxqofu/
 ----
-
 I watch while you sleep with a smile on your face -  
 A vision of beauty, perfection and grace.  
 A picture of kindness and charm and delight -  
@@ -2399,8 +2631,8 @@ I look to the stars and I whisper *amen*.
 And then you're awake,  
 and I hate you again.
 
+/r/AskReddit/comments/few10e/what_makes_you_roll_your_eyes_every_time_you_hear/fjt5lwy/
 ----
-
 Like a tide of lumpy lotion,  
 In a slushin',  
 rushin'  
@@ -2427,8 +2659,8 @@ What you're puttin' in...
 
 comes out.
 
+/r/AskReddit/comments/few10e/what_makes_you_roll_your_eyes_every_time_you_hear/fjt3c70/
 ----
-
 There I sat, procrastinating,  
 Hope and hapless,  
 bored and waiting,  
@@ -2450,8 +2682,8 @@ Freed my flagging phallus madly -
 Till I read this comic gladly,  
 Grinned, and left my room.
 
+/r/AskReddit/comments/fery8u/in_2019_pornhub_released_statistics_that_showed/fjrelz2/
 ----
-
 "There's nothing as super," he spoke with a sigh -  
 "As treasured and pleasured and fair to the eye -  
 As lovingly lovely -  
@@ -2471,8 +2703,8 @@ I'll do it...
 
 ... for *hentai*," he said.
 
+/r/AskReddit/comments/fery8u/in_2019_pornhub_released_statistics_that_showed/fjqqwz2/
 ----
-
 And from the churning flames that burn,  
 The haunted shades of worlds that turn,  
 The blistered fists,  
@@ -2485,8 +2717,8 @@ The squirming shapes that thrash and thresh -
 
 Emerged a cheeto made of flesh.
 
+/r/AskReddit/comments/fefxhi/the_closest_orange_object_is_the_cause_of_your/fjodiw6/
 ----
-
 Watching,  
 darkness  
 waits behind you,  
@@ -2501,8 +2733,8 @@ Always watching.
 
 Always waiting.
 
+/r/AskReddit/comments/fefxhi/the_closest_orange_object_is_the_cause_of_your/fjod9e6/
 ----
-
 Perhaps you've heard his story?  
 Perhaps you've heard his tale?  
 The grim, the gross, the gory?  
@@ -2529,8 +2761,8 @@ They call him only...
 
 *Blart.*
 
+/r/AskReddit/comments/fegdk3/which_movie_title_becomes_the_most_ridiculous/fjo8f9l/
 ----
-
 He looked around from left to right -  
 He cast his eyes below -  
 He glanced ahead and turned his sight  
@@ -2543,8 +2775,8 @@ He softly whispered:
 
 "... shit."
 
+/r/AskReddit/comments/fefxhi/the_closest_orange_object_is_the_cause_of_your/fjo78qi/
 ----
-
 When Little Timmy made a dish,  
 A piece of pizza pie -  
 A slice of cake, a steak, a fish,   
@@ -2562,8 +2794,8 @@ Alas, his food was *hot as hell.*
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/fe092l/do_you_blow_at_your_food_when_its_too_hot_or_just/fjl4a7u/
 ----
-
 >Super roads! Only the best roads ever made!
 
 "I want the *bestest* roads," he spoke,  
@@ -2584,8 +2816,8 @@ He softly sighed and smiled and said -
 
 ... I am the best."
 
+/r/AskReddit/comments/fdi1uz/mike_bloomberg_has_dropped_out_after_spending/fji4sk7/
 ----
-
 There, at ease, I watched in wonder,  
 Skimpy wardrobe strewn asunder,  
 Tempted by her perky plunder,  
@@ -2602,8 +2834,8 @@ Compensated loans completely -
 
 ... hookers gotta eat.
 
+/r/AskReddit/comments/fdi1uz/mike_bloomberg_has_dropped_out_after_spending/fji2xfo/
 ----
-
 When Little Timmy found the means  
 To turn his anus pink -  
 He said: "... a little lotion cleans   
@@ -2621,8 +2853,8 @@ But Timmy did it all with *bleach*.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/fctfzr/ex_vegans_why_did_you_start_eating_meat_again/fjdrfq5/
 ----
-
 You're the bravest I know,  
 And the strongest I've met,  
 And you're fearlessly bold,  
@@ -2651,8 +2883,8 @@ For a moment or two -
 And I'm tired, but I know  
 That it's worth it for you.
 
+/r/AskReddit/comments/fbrn0e/dog_owners_of_reddit_would_you_cut_of_5_years_of/fj6ktht/
 ----
-
 >I fully expected something grotesque.
 
 There is   
@@ -2666,8 +2898,8 @@ A loss of faith I can't forget.
 
 ... I blame it on the internet.
 
+/r/AskReddit/comments/fbn7df/parents_with_nanny_cams_what_have_you_caught_your/fj63mvn/
 ----
-
 They take me out to pee at night.  
 I wear a leash all day.  
 My hair is clean,  
@@ -2686,8 +2918,8 @@ They cut my bollocks off last June.
 
 That wasn't in the plan.
 
+/r/AskReddit/comments/fbn7df/parents_with_nanny_cams_what_have_you_caught_your/fj60lrc/
 ----
-
 >God I miss that blackberry thief.
 
 
@@ -2716,8 +2948,8 @@ A piece of me.
 
 A friend.
 
+/r/AskReddit/comments/fbn7df/parents_with_nanny_cams_what_have_you_caught_your/fj5ylo1/
 ----
-
 I do believe that pigs can fly -  
 That ghosts can haunt your bed -  
 That Little Timmy *didn't* die -  
@@ -2745,8 +2977,8 @@ I don't,
 in fact,  
 believe.
 
+/r/AskReddit/comments/fbiay6/what_conspiracy_theories_do_you_think_are_too/fj4rr6y/
 ----
-
 "It's what you really ought to do -  
 It's what you really should.  
 A little change is *right* for you.  
@@ -2765,8 +2997,8 @@ And now I'm glad I changed for me.
 
 *And now I wish I did.*
 
+/r/AskReddit/comments/fbdgi5/what_should_teenagers_these_days_really_start/fj3tedu/
 ----
-
 >Shit happens sometimes and you gotta know it's okay for plans to change.
 
 I take what I can  
@@ -2781,8 +3013,8 @@ It might not be perfect.
 For now,  
 it's enough.
 
+/r/AskReddit/comments/fbdgi5/what_should_teenagers_these_days_really_start/fj3sgtk/
 ----
-
 >Finally someone who looks like my mom.
 
 "Me father's me mother,  
@@ -2802,8 +3034,8 @@ And *me*...
 
 ... I'm a family man."
 
+/r/AskReddit/comments/fb9vmw/what_is_a_bad_thing_to_say_on_a_first_date/fj3mpnx/
 ----
-
 Two old legs with creaking knees -  
 Thumbs that crack, and lungs that wheeze -  
 Arms that shake, and eyes that blur -  
@@ -2820,8 +3052,8 @@ One solution:
 
 *Don't get old.*
 
+/r/AskReddit/comments/fayx6x/how_was_your_day/fj1v5gp/
 ----
-
 When in our bed,  
 I see it out,  
 I do not fret,  
@@ -2831,8 +3063,8 @@ she hopes I'll put
 My dick inside  
 her fartnutbutt.
 
+/r/AskReddit/comments/famum3/what_fetish_will_you_keep_a_secret_from_the/fizpy7s/
 ----
-
 >Keep them toes from getting crusty...
 
 "Lick my feet," she whispered gently,  
@@ -2853,8 +3085,8 @@ Sample every scent to savor -
 
 Crunch my crusty footsy flavor."
 
+/r/AskReddit/comments/f9cufu/what_are_some_ridiculous_history_facts/firjxbp/
 ----
-
 >See the Northern Lights in Scandinavia on a cold winter night surrounded by nature, and sitting next to the love of my life
 
 Buckled colors curling,  
@@ -2876,8 +3108,8 @@ captivating -
 
 seated next to you.
 
+/r/AskReddit/comments/f8dkw3/what_is_at_the_top_of_your_bucket_list/fil0wet/
 ----
-
 When the world has left me weary,  
 And I've no more will to roam -  
 Then I leave the drab and dreary,  
@@ -2899,8 +3131,8 @@ I am best alone completely.
 
 Other people are the *worst.*
 
+/r/AskReddit/comments/f8csdm/why_do_you_like_to_be_alone/fikxojr/
 ----
-
 I will not do it with a smile.  
 I will not go the extra mile.  
 I will not seize upon the day.  
@@ -2920,8 +3152,8 @@ I'll do it like I always do.
 
 With scorn and spite and fuck you too.
 
+/r/AskReddit/comments/f87myj/why_do_you_like_to_be_alive/fijxgmr/
 ----
-
 Though yesterday's over and time is a blur -  
 How well I remember the way that we were.  
 The summers we spent by the blue and the green -  
@@ -2939,8 +3171,8 @@ And yesterday's over and time is a blur.
 
 How well I remember the way that we were.
 
+/r/AskReddit/comments/f74fvp/what_quote_has_always_stuck_with_you/fi9h6bb/
 ----
-
 When Little Timmy saw the choice,  
 And pondered what to do -  
 He knew he had a thought to voice,  
@@ -2958,8 +3190,8 @@ He stared and softly said: "... oh well."
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/f6ty5p/would_you_take_a_5050_chance_at_5000000_or_death/fi7knhu/
 ----
-
 They felt his feeble, fevered head -  
 The first pernicious sign.  
 "How sad, how *sad*,"  
@@ -2980,8 +3212,8 @@ but now he's not.
 
 He couldn't save enough.
 
+/r/AskReddit/comments/f6ty5p/would_you_take_a_5050_chance_at_5000000_or_death/fi7hvkj/
 ----
-
 "To whistle," he whispered,  
 "To whistle," he said -  
 "To *whistle*, prepare for the moment ahead!  
@@ -2999,8 +3231,8 @@ And when they were done and the time came to pass -
 
 He found that he *still* couldn't do it, alas.
 
+/r/AskReddit/comments/f6fkuo/whats_something_that_youve_never_learned_to_do/fi522s1/
 ----
-
 >My kids are like this too. I have always struggled with my mental health and I’m so glad they can at least talk more honestly and openly.
 
 I just... didn't say it.  
@@ -3018,8 +3250,8 @@ it wasn't to plan.
 
 How endlessly better to know that you can.
 
+/r/AskReddit/comments/f6a9gt/what_do_you_wish_you_had_in_high_school_that_kids/fi3w1dx/
 ----
-
 In dead of night, I lie awake;  
 A tempest blows - the windows shake.  
 My parents sleep a slumber, sweet...
@@ -3046,8 +3278,8 @@ I swallow hard and google...
 
 "boob."
 
+/r/AskReddit/comments/f6a9gt/what_do_you_wish_you_had_in_high_school_that_kids/fi3qfn4/
 ----
-
 >Ode to the Internet
 
 "Oh it *might* be a cesspit of madness and memes,  
@@ -3057,8 +3289,8 @@ But I tell you," he whispered, "I tell you...
 
 ... the *porn*."
 
+/r/AskReddit/comments/f6a9gt/what_do_you_wish_you_had_in_high_school_that_kids/fi3noug/
 ----
-
 When Little Timmy found a bee,  
 A buzzing, fuzzy drone -  
 He found with hope and youthful glee,  
@@ -3076,8 +3308,8 @@ And from his bag he grabbed a gun.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/f54y3m/bank_tellers_of_reddit_what_is_your_plan_if/fhx885h/
 ----
-
 Well I'll *never* own an acre -  
 And I *haven't* got a deed -  
 And I *ain't* a moneymaker...
@@ -3088,8 +3320,8 @@ But I've *everything* I need.
 
 ^^^:)
 
+/r/AskReddit/comments/f54f73/this_may_sound_stupid_but_being_poor_can_teach/fhwv7k1/
 ----
-
 He picked on the post,  
 and he clicked on the thread -  
 He saw what was written,  
@@ -3101,8 +3333,8 @@ He chuckled politely and said:
 
 "... what a *pun*."
 
+/r/AskReddit/comments/f52jim/theres_already_enough_karenhate_on_the_internet/fhwu3wg/
 ----
-
 Seized in swathes of sweet temptation,  
 Sat beside the free-weight station,  
 Palms a pool of perspiration,  
@@ -3119,8 +3351,8 @@ So his firmness failed and faded -
 
 "Just a tiny taste..."
 
+/r/AskReddit/comments/f4wrsn/doctors_of_reddit_whats_the_biggest_case_of/fhv94ib/
 ----
-
 "But of course," he opined,  
 from his place of repose,  
 "Though I hate to surmise  
@@ -3151,8 +3383,8 @@ is just this:
 
 ... you're insane."
 
+/r/AskReddit/comments/f4wrsn/doctors_of_reddit_whats_the_biggest_case_of/fhv0v4u/
 ----
-
 She looked at her fingers.  
 
 She knew what she'd done.  
@@ -3166,8 +3398,8 @@ But now it was over.
 She picked up her bags  
 and she started to pack.
 
+/r/AskReddit/comments/f4wrsn/doctors_of_reddit_whats_the_biggest_case_of/fhux893/
 ----
-
 "But I'm *seizing*," she said,  
 with a shake of her head,  
 as I watched from a place by the door -  
@@ -3177,8 +3409,8 @@ and I said:
 
 "... get the fuck off the floor."
 
+/r/AskReddit/comments/f4wrsn/doctors_of_reddit_whats_the_biggest_case_of/fhuvn8t/
 ----
-
 I am a little lazybean,  
 A loozerbean, that's me.  
 A lazerbean,  
@@ -3198,8 +3430,8 @@ lezbterboon.
 
 I am a lazybean.
 
+/r/AskReddit/comments/f4e0le/lesbians_of_reddit_what_would_you_do_if_you_went/fhqa7oc/
 ----
-
 "It's not that you're not  
 who I thought just before -  
 You're still really fun  
@@ -3211,8 +3443,8 @@ I am not attracted to penis.
 
 That's all."
 
+/r/AskReddit/comments/f4e0le/lesbians_of_reddit_what_would_you_do_if_you_went/fhq0e56/
 ----
-
 If you want to have me nearest,  
 Want to know me,  
 *meet* me, dearest,  
@@ -3240,8 +3472,8 @@ All you need to have me nearest...
 
 ... if you want to meet me, dearest.
 
+/r/AskReddit/comments/f49r4l/if_you_were_a_demon_what_would_it_take_to_summon/fhphg9i/
 ----
-
 When Little Timmy grabbed a throat,  
 And held it *very* tight -  
 He grasped and squeezed and paused to gloat -  
@@ -3259,8 +3491,8 @@ And loudly, proudly cried -
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/f47gmb/how_do_you_control_yourself_when_you_are_full_of/fhoy8is/
 ----
-
 When I'm sick of dull and dreary -  
 When I'm weary, all at sea -  
 When I'm feeling tired and teary,  
@@ -3277,8 +3509,8 @@ Take the chance to settle to it -
 
 Spend the time alone with me.
 
+/r/AskReddit/comments/f47gmb/how_do_you_control_yourself_when_you_are_full_of/fhowsj9/
 ----
-
 >They dined and dashed.
 
 "I have a *great* idea!" he said,  
@@ -3300,8 +3532,8 @@ Do you agree?"
 
 She said: "... I do."
 
+/r/AskReddit/comments/f2wokf/waiters_what_valentine_day_disasters_have_you/fhfna8z/
 ----
-
 He looks at her, stoic,  
 and while she orates -  
 A blister of bluster  
@@ -3323,8 +3555,8 @@ He whispers:
 
 ... it's *this* shit again."
 
+/r/AskReddit/comments/f2wokf/waiters_what_valentine_day_disasters_have_you/fhfkq80/
 ----
-
 >"Fuck, no!" was his response.
 
 I *wanted* to marry you,  
@@ -3346,8 +3578,8 @@ But *fuck it*.
 
 I think that you're kind of a cunt.
 
+/r/AskReddit/comments/f2wokf/waiters_what_valentine_day_disasters_have_you/fhffzzb/
 ----
-
 >I do the same.
 
 And every night, before I sleep -  
@@ -3372,8 +3604,8 @@ And then I wake.
 
 And wish for sleep.
 
+/r/AskReddit/comments/f1irzw/people_who_can_fall_asleep_within_8_seconds_of/fh7347p/
 ----
-
 "Is it rare?  
 Is it old?  
 Is it made out of gold?  
@@ -3397,8 +3629,8 @@ it *isn't* an opus of pen?
 
 ... why the *fuck* is it so fucking valuable then?"
 
+/r/AskReddit/comments/f1avnb/what_does_everyone_spend_money_on_that_you_refuse/fh4vsoc/
 ----
-
 Late last night,  
 whilst sleeping sweetly,  
 So contently,  
@@ -3419,8 +3651,8 @@ Lingered long and watching, waited.
 
 "... BUY A FRIDGE," Alexa stated.
 
+/r/AskReddit/comments/f1avnb/what_does_everyone_spend_money_on_that_you_refuse/fh4kgle/
 ----
-
 "Buy this thing," their advert started,  
 "Then, when all your cash has parted,  
 Borrow dough from friends to try it -  
@@ -3440,8 +3672,8 @@ Please.
 
 We really want your wages."
 
+/r/AskReddit/comments/f1avnb/what_does_everyone_spend_money_on_that_you_refuse/fh4a256/
 ----
-
 "Now son," he began,  
 with a shake of his head -  
 "You can't send a dick  
@@ -3480,8 +3712,8 @@ He gave him his answer.
 
 "... I do," he replied.
 
+/r/AskReddit/comments/f0n2sb/people_who_dm_instagram_chicks_with_weird_sexual/fgw25mx/
 ----
-
 When Little Timmy looked with love  
 Beyond his tiny feet -  
 His perfect puppy stared above,  
@@ -3499,8 +3731,8 @@ But Timmy's doggy *powered up.*
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/ezauxv/what_are_some_tips_for_someone_with_no_fighting/fgn23o3/
 ----
-
 There's nothing good that comes from fights,  
 Nor brainless brawls on drunken nights -  
 A foolish feud,  
@@ -3515,8 +3747,8 @@ I say, in earnest:
 
 *finish first.*
 
+/r/AskReddit/comments/ezauxv/what_are_some_tips_for_someone_with_no_fighting/fgmqi7g/
 ----
-
 When Little Timmy saw a thread  
 That hurt his tiny brain -  
 He shook his aching head and said:  
@@ -3534,8 +3766,8 @@ So Little Timmy grabbed the bleach.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/eyif55/dear_reddit_if_you_were_to_have_sex_with_any/fghvfw1/
 ----
-
 When Little Timmy saw a goose,  
 Inside a paddock penned -  
 He softly shook the breadcrumbs loose  
@@ -3553,8 +3785,8 @@ He watched it slowly turn to him.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/exgy9m/what_is_the_weirdest_thing_youve_heard_or_had/fg8o9pl/
 ----
-
 >"2020"
 
 On the second of the second  
@@ -3574,8 +3806,8 @@ And I'll whisper it, and then:
 
 ... till the homework starts again."
 
+/r/AskReddit/comments/ex8ur9/sundays_date_is_written_the_same_forward_and/fg770d1/
 ----
-
 A Satan is not fast or slow.
 
 A Satan goes  
@@ -3585,8 +3817,8 @@ He is not fast or slow, you see -
 
 He's always where he's meant to be.
 
+/r/AskReddit/comments/ewpc8d/your_plan_for_world_domination_has_succeeded_but/fg48643/
 ----
-
 The thing about itches -  
 the thing about sand -  
 The thing about itches  
@@ -3600,8 +3832,8 @@ It's coarse...
 
 ... and it gets *everywhere.*
 
+/r/AskReddit/comments/ewpc8d/your_plan_for_world_domination_has_succeeded_but/fg40x06/
 ----
-
 "I've got it!" he whispered,  
 and grinned with delight -  
 "May all of their sneezes arrive in the night!  
@@ -3627,8 +3859,8 @@ the might of a god!
 
 "... *and let all their number of AAs be odd!*"
 
+/r/AskReddit/comments/ewpc8d/your_plan_for_world_domination_has_succeeded_but/fg3v8xi/
 ----
-
 And late he lies awake in bed,  
 A whirl of worlds inside his head  
 That slowly wane away in sleep,  
@@ -3654,8 +3886,8 @@ a sentence, small:
 
 "... I can't believe that *worked at all.*"
 
+/r/AskReddit/comments/ew5y15/anyone_what_are_some_stories_you_have_wanted_to/fg0nale/
 ----
-
 He sits in the dark in the still of his car -  
 A shape in the shade that you see from afar -  
 A shadow in silence -  
@@ -3668,8 +3900,8 @@ A bane to your mind and a burden to sleep.
 
 He thinks: "... god I hope I don't look like a creep."
 
+/r/AskReddit/comments/evy7bt/what_becomes_10x_creepier_at_night/ffz5ubg/
 ----
-
 "Now wait just a minute -  
 explain to me please -  
 The nature of charges as silly as these.  
@@ -3692,8 +3924,8 @@ They said to him:
 
 "... yes."
 
+/r/AskReddit/comments/eva97w/what_isnt_illegal_but_really_ought_to_be/ffusv68/
 ----
-
 He sat and he stared at the screen with a sigh -  
 A hitch in his chest and a tear in his eye -  
 A feeling that lingered -  
@@ -3714,16 +3946,16 @@ He sat and he stared till he knew it was true -
 
 "... I can't look away."
 
+/r/AskReddit/comments/euoqp6/girls_who_took_notes_using_50_different_colored/ffr8sfq/
 ----
-
 She sat in the silence and stared at the screen -  
 The faults in their clothes and the stuff in between -  
 The pieces of fabric increasingly small -  
 
 She whispered: "... well this is just no good at all."
 
+/r/AskReddit/comments/eu6iol/what_innocent_search_turned_out_to_be_porn/ffmiukb/
 ----
-
 When Little Timmy went to see  
 His therapist one day -  
 He said: "there's something *wrong* with me,  
@@ -3751,8 +3983,8 @@ She whispered: "... drop your panties, boy."
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/eu6iol/what_innocent_search_turned_out_to_be_porn/ffmgu9w/
 ----
-
 When Mr Hunt and Mrs Hunt  
 Had birthed themselves a boy -  
 They eyed their teeny-tiny runt  
@@ -3771,8 +4003,8 @@ A single name emerged in front.
 Alas, my friends -  
 'twas *Mike.*
 
+/r/AskReddit/comments/eu6iol/what_innocent_search_turned_out_to_be_porn/ffmejaa/
 ----
-
 Remember what we used to do,  
 And how we used to be?  
 I always knew to count on you,  
@@ -3785,8 +4017,8 @@ It's not that friendships end, as such.
 
 They simply... drift away.
 
+/r/AskReddit/comments/ett7fr/what_has_been_your_biggest_fuckup_leading_up_to/ffj6052/
 ----
-
 When I was young and softly shy,  
 Or apt to brood and think -  
 I found a braver, bolder guy  
@@ -3806,8 +4038,8 @@ I drank my doubts away.
 I whispered *yes* and paid the toll,  
 When *no* was hard to say.
 
+/r/AskReddit/comments/ett7fr/what_has_been_your_biggest_fuckup_leading_up_to/ffj4f5e/
 ----
-
 >... the only reason I don't hang around toxic people anymore is because they left me behind...
 
 She lies in the silence,  
@@ -3828,8 +4060,8 @@ She knows that they left her behind on her own.
 
 She wonders if whether it's better alone.
 
+/r/AskReddit/comments/ett7fr/what_has_been_your_biggest_fuckup_leading_up_to/ffj3vxd/
 ----
-
 When Little Timmy saw the plume,  
 He knew that time was short -  
 For what arose in front was doom,  
@@ -3847,8 +4079,8 @@ And that was when the shock-wave hit.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/etohsu/what_movie_things_are_generally_accepted_as/ffi8o1n/
 ----
-
 I know a cat named Mildred.  
 
 Her owner thinks she's neat.  
@@ -3872,8 +4104,8 @@ and this I know...
 
 ... because her owner's *me.*
 
+/r/AskReddit/comments/etbrdf/pet_owners_of_reddit_what_quirk_does_your_pet/ffftmmu/
 ----
-
 And so, when the hornets were caught in a spin -  
 A circle of rage and resentment within -  
 A tempest of temper,  
@@ -3888,8 +4120,8 @@ They picked up their sticks and they just...
 
 ... let them out.
 
+/r/AskReddit/comments/est2b4/what_would_be_the_worst_thing_to_put_in_a_piñata/ffcfsxj/
 ----
-
 He always said the nicest stuff -  
 The decent thing to say -  
 He told me once: "... you *are* enough;  
@@ -3908,8 +4140,8 @@ He said:
 
 "... 'tis Rimjob Steve."
 
+/r/AskReddit/comments/esc8vq/if_13_year_old_you_made_a_time_machine_and_came/ff9sg6l/
 ----
-
 >I'd honestly be impressed 13-year-old me found the time to invent a time machine between discovering masturbation and getting a PS2.
 
 Though the future is uncertain -  
@@ -3931,8 +4163,8 @@ But I'll still be masturbating.
 
 ... and I never want to change.
 
+/r/AskReddit/comments/esc8vq/if_13_year_old_you_made_a_time_machine_and_came/ff9h21a/
 ----
-
 And boys and girls the world around,  
 They opened up their eyes and found  
 A buck, or two, or three, or four,  
@@ -3944,8 +4176,8 @@ for *all* had spent...
 
 And hardly even made a dent.
 
+/r/AskReddit/comments/equ586/in_may_2018_jeff_bezos_made_around_191000_a/feyee67/
 ----
-
 When Little Timmy's mother said,  
 "I cannot do it, Tim!"  
 She sighed and sadly shook her head,  
@@ -3963,8 +4195,8 @@ And Timmy took a pill... or two.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/eqt3lg/older_people_of_reddit_what_was_the_equivalent_of/fexpsu2/
 ----
-
 >I still wish I could prove or disprove the existence of this dog because I remember him SO vividly and my family does not.
 
 The dog that *is*,  
@@ -3983,8 +4215,8 @@ Might not, in fact, exist...
 
 at all.
 
+/r/AskReddit/comments/eqies2/whats_your_creepiest_glitch_in_the_matrix_or/feulxa3/
 ----
-
 "Help," she whispers softly, gently,  
 All despairing,  
 all-intently,  
@@ -4007,8 +4239,8 @@ crawling,
 laughing,  
 screaming.
 
+/r/AskReddit/comments/eqies2/whats_your_creepiest_glitch_in_the_matrix_or/feuadz7/
 ----
-
 >Also a pet is really useful. If they aren’t responding, I could relax.
 
 When things are not the things I thought -  
@@ -4027,8 +4259,8 @@ I turn my thoughts to you and then...
 
 I think I feel all right again.
 
+/r/AskReddit/comments/eqies2/whats_your_creepiest_glitch_in_the_matrix_or/fetvjo7/
 ----
-
 I woke with the words of the dream in my mind -  
 The scents and the sights in the spaces behind -  
 The moods and emotions,  
@@ -4038,8 +4270,8 @@ And now it was *totally* meaningless.
 
 Fuck.
 
+/r/AskReddit/comments/eq1wzh/as_of_right_now_what_will_it_take_to_make_you_100/fenu7g5/
 ----
-
 >A cabin in the woods, near a river. Solid and beautiful. High ceilings, lots of windows, and an incredible view...
 
 *Come away,*  
@@ -4072,8 +4304,8 @@ Fuck.
 *With our backs to the bark*  
 *Of the marvellous Mulliver Tree.*
 
+/r/AskReddit/comments/eq1wzh/as_of_right_now_what_will_it_take_to_make_you_100/fenqohr/
 ----
-
 >100% Happy? I think finding someone who genuinely loves me for who I am and wants a present and future with me.
 
 She comes up close and looks my way.  
@@ -4090,8 +4322,8 @@ She wags her tail.
 
 It must be love.
 
+/r/AskReddit/comments/eq1wzh/as_of_right_now_what_will_it_take_to_make_you_100/feng3sx/
 ----
-
 The future's good.  
 The future's bright.  
 The future's filled with love and light.  
@@ -4100,8 +4332,8 @@ Alas, there is one small dismay.
 
 ... it's really fucking far away.
 
+/r/AskReddit/comments/epj100/gamers_of_reddit_what_are_some_underrated_games/fekh444/
 ----
-
 I drank in the morning.  
 I drank in the night.  
 I drank in the day and the first ray of light.  
@@ -4119,8 +4351,8 @@ And then, when it finished...
 
 ... I drank a bit more.
 
+/r/AskReddit/comments/eondj6/if_you_drink_a_12_pack_of_beer_every_day_for_a/feef9xm/
 ----
-
 "There's nothing as super," he spoke with a sigh -  
 "As treasured and pleasured and fair to the eye -  
 As lovingly lovely -  
@@ -4140,8 +4372,8 @@ I'll love it!
 
 ... as long as it features a bus."
 
+/r/AskReddit/comments/eo83cx/is_a_transgendered_person_morally_obligated_to/feb2cia/
 ----
-
 I've got a pen.  
 I've got a few.  
 I've got a pencil,  
@@ -4161,8 +4393,8 @@ And as some children can't behave -
 
 I keep them in my microwave.
 
+/r/AskReddit/comments/eo6l00/whats_the_best_way_youve_seen_someone_rebel/fe9rgfu/
 ----
-
 There is a mattress in the street -  
 It's fifty shades of grey.  
 It's not *precisely* nice or neat,  
@@ -4180,8 +4412,8 @@ And something rank that might be meat.
 
 I think I'll take it home.
 
+/r/AskReddit/comments/ennslu/what_is_an_important_piece_of_advice_you_can_give/fe41ppw/
 ----
-
 >"Detroit"
 
 He stopped and saw the sign outside,  
@@ -4190,8 +4422,8 @@ A dollar bill,
 a buck ahead -  
 "... I think I'll buy a house," he said.
 
+/r/AskReddit/comments/ennslu/what_is_an_important_piece_of_advice_you_can_give/fe3w0o4/
 ----
-
 There was staining on the stripping.  
 There was smearing on the door.  
 There were drops and they were dripping  
@@ -4214,8 +4446,8 @@ And I whispered:
 
 "... got your *nose.*"
 
+/r/AskReddit/comments/enjev0/nsfw_crime_scene_cleanup_crew_members_of_reddit/fe1a0y9/
 ----
-
 >TLDR: Melted penis stretched and slingshotted off kitchen floor.
 
 He reeled from the corpse with a shriek of surprise -  
@@ -4224,8 +4456,8 @@ A sob and a look of despair in his eyes.
 
 "... I just got a *dick* in the *face*," he replied.
 
+/r/AskReddit/comments/enjev0/nsfw_crime_scene_cleanup_crew_members_of_reddit/fe18cpg/
 ----
-
 >FYI liquid people are quite toxic.
 
 When Little Timmy found a stiff,  
@@ -4246,8 +4478,8 @@ But Little Timmy breathed too deep.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/enjev0/nsfw_crime_scene_cleanup_crew_members_of_reddit/fe170zw/
 ----
-
 "Your call is important," it stated, and then -  
 I listened fixated,  
 frustrated again.  
@@ -4257,8 +4489,8 @@ And then, in the silence, it whispered:
 
 "... it's not."
 
+/r/AskReddit/comments/en94hf/what_common_phrase_is_complete_bullshit/fdy7ari/
 ----
-
 "It's a map!  
 It's a watch!  
 It's for movies and shows!  
@@ -4279,8 +4511,8 @@ It's the tool of today!
 
 ... and oh yeah - it's a phone."
 
+/r/AskReddit/comments/en7cn8/whats_an_invention_thats_still_around_today_but/fdwr4dm/
 ----
-
 When the news that they show on the news isn't news,  
 Only outrage and shock manufactured for views,  
 And you can't learn a thing from the new TLC,  
@@ -4293,8 +4525,8 @@ and the feeling's defeat -
 
 Then I just watch the stuff that I like on repeat.
 
+/r/AskReddit/comments/en7cn8/whats_an_invention_thats_still_around_today_but/fdw9j8h/
 ----
-
 >"This be the Movie"
 
 They fuck you up, some movies do.  
@@ -4308,8 +4540,8 @@ Are not the things you think they mean.
 
 They fuck you up, some movies do.
 
+/r/AskReddit/comments/en3o6k/what_is_a_movie_that_after_you_finished_watching/fduoc3y/
 ----
-
 They gathered in factions.  
 They gathered in groups.  
 They gathered in crowds and in classes and troops.  
@@ -4331,8 +4563,8 @@ They came on a night that was silent and black.
 
 *And no one survived in the castle attack.*
 
+/r/AskReddit/comments/emqd57/what_brand_are_you_loyal_to_and_why/fdr5x5u/
 ----
-
 He looked at his momma with pride and with joy -  
 Her minor admirer,  
 her proud little boy.  
@@ -4346,8 +4578,8 @@ And they gave her *many!*
 
 ^^^:)
 
+/r/AskReddit/comments/elssvy/what_was_the_dumbest_thing_you_thought_as_a_child/fdkkv06/
 ----
-
 When Little Timmy's brother said:  
 "I think you ought to know -"  
 He softly spoke, "until you've *bled*,  
@@ -4366,8 +4598,8 @@ And *punched* and *punched* his balls again.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/elssvy/what_was_the_dumbest_thing_you_thought_as_a_child/fdkh1sn/
 ----
-
 "I'm *dreadfully* sorry," he spoke with a sigh,  
 "But if you can't give me a reason for *why* -"  
 He looked at her hard with a shake of his head -  
@@ -4375,8 +4607,8 @@ He looked at her hard with a shake of his head -
 
 ... you *fascist*," he said.
 
+/r/AskReddit/comments/ekx7gi/what_is_the_best_response_when_a_cop_says_do_you/fdeq0ci/
 ----
-
 >"Do you know why I pulled you over?"
 
 I thought of all he said a while,  
@@ -4401,8 +4633,8 @@ And all I said was:
 
 "... no."
 
+/r/AskReddit/comments/ekx7gi/what_is_the_best_response_when_a_cop_says_do_you/fdeotn3/
 ----
-
 "I could harness my skill,  
 I could try to begin,  
 Turn a *flaw* to a *strength*,  
@@ -4433,8 +4665,8 @@ and to make your own luck,
 And to do what you can  
 to be lazy as *fuck.*"
 
+/r/AskReddit/comments/eke3wm/what_is_the_greatest_reddit_post_of_all_time/fdb4avl/
 ----
-
 "It's not the way he strokes my hair,  
 Or swears I'll always find him there -  
 It's not the way he holds me near,  
@@ -4447,8 +4679,8 @@ Because...
 
 ... he shares his porn with me."
 
+/r/AskReddit/comments/ekcgua/pornhub_premium_members_of_reddit_was_the/fdam9n8/
 ----
-
 my name is Cat,  
 an wen i find  
 a fing i will not  
@@ -4460,8 +4692,8 @@ i make my way.
 
 i bring the leef.
 
+/r/AskReddit/comments/ek7l30/if_cats_had_pockets_what_would_you_find_in_your/fd7wlft/
 ----
-
 When Little Timmy lost his door,  
 He didn't fret or frown -  
 He merely said: "I must do *more*  
@@ -4480,8 +4712,8 @@ But Timmy owned the thirteenth floor.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/ek07fx/starting_from_january_12th_2020_doors_will_become/fd51gwm/
 ----
-
 'Tis a tribulation sour -  
 'Tis the burden of the meek -  
 To be standing in the shower  
@@ -4501,8 +4733,8 @@ Though you didn't want to wait -
 And you find yourself replying  
 When it's just *too fucking late.*
 
+/r/AskReddit/comments/ejwjbm/you_gain_the_ability_to_stop_time_after_stopping/fd3dxrx/
 ----
-
 He turned the switch,  
 and time was still,  
 And clocks had ticked their last until  
@@ -4513,8 +4745,8 @@ He whispered:
 
 "... *fuck.*"
 
+/r/AskReddit/comments/ejwjbm/you_gain_the_ability_to_stop_time_after_stopping/fd345uf/
 ----
-
 And every night, before I sleep -  
 Before the gentle dreams I keep  
 Within my dozing, drifting mind,  
@@ -4536,8 +4768,8 @@ And then I wake.
 
 And wish for sleep.
 
+/r/AskReddit/comments/ejwjbm/you_gain_the_ability_to_stop_time_after_stopping/fd32fpl/
 ----
-
 They stepped down the stairway,  
 the sun in their eyes -  
 Their faces a mixture  
@@ -4548,8 +4780,8 @@ and listened, and then -
 They got back on board  
 and they took off again.
 
+/r/AskReddit/comments/ejfvct/the_pope_slapped_a_woman_on_day_1_of_2020_world/fcxu7uo/
 ----
-
 When Little Timmy stared above  
 To see the starry sky -  
 He looked with hope and joy and love,  
@@ -4567,8 +4799,8 @@ A crack appeared across the moon.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/ejfvct/the_pope_slapped_a_woman_on_day_1_of_2020_world/fcxtdcg/
 ----
-
 >tomato as tomato
 
 It rhymes with lead,  
@@ -4593,8 +4825,8 @@ often...
 
 off the mark.
 
+/r/AskReddit/comments/eixc75/how_has_online_dating_worked_for_you/fcumobq/
 ----
-
 I don't believe in soulmates.  
 It wasn't *meant to be.*  
 It wasn't trips,  
@@ -4620,8 +4852,8 @@ I don't believe in soulmates.
 
 I think I might be wrong.
 
+/r/AskReddit/comments/eixc75/how_has_online_dating_worked_for_you/fcugw05/
 ----
-
 His mother was waiting.  
 He stared at the floor.  
 He'd angrily sighed as he walked through the door.  
@@ -4634,8 +4866,8 @@ You're perfect, my darling - the finest of men!
 
 ... perhaps you should send her the Führer again."
 
+/r/AskReddit/comments/eixc75/how_has_online_dating_worked_for_you/fcuep3d/
 ----
-
 >Long story short, it was mostly an inappropriate and one-sided 5-minute conversation.
 
 "What's *this* I see?  
@@ -4657,8 +4889,8 @@ oh what delight!
 
 ... a picture of a dick."
 
+/r/AskReddit/comments/eixc75/how_has_online_dating_worked_for_you/fcudmpq/
 ----
-
 "You *ignore* it?" he said,  
 with a shake of his head,  
 "Not just bitch and condemn and complain?  
@@ -4674,16 +4906,16 @@ What you're finding a bore?
 
 ... what a *novel* proposal," he said.
 
+/r/AskReddit/comments/eitect/how_would_you_feel_about_a_ban_of_your_username/fctqk9f/
 ----
-
 "I *love* the pitch!" he said with glee -  
 "It's plain as day and clear to see  
 It's sure to make the perfect show!  
 
 ... there is a *tiny* problem though."
 
+/r/AskReddit/comments/eijg49/how_would_you_feel_about_a_show_where_in_the/fcrr6jb/
 ----
-
 >One of the hardest things to accept as a child is that our parents are human - which can often make their mistakes so much more hurtful because of our naive thinking that they are infallible or otherwise have a code of conduct that is unattainable.
 
 She closed her eyes -  
@@ -4705,8 +4937,8 @@ and shared a smile.
 
 "... I'm listening," he said.
 
+/r/AskReddit/comments/eihliz/everybody_talks_about_missing_or_ignoring_red/fcraxck/
 ----
-
 "Don't fret it -  
 don't sweat it -  
 don't *worry*," he spoke.  
@@ -4718,8 +4950,8 @@ She just... doesn't like you.
 
 That's perfectly fine."
 
+/r/AskReddit/comments/eigp35/whats_the_best_comeback_to_a_wow_you_talk_youre/fcr4df1/
 ----
-
 "Good heavens, you're always so *quiet*!" they said -  
 "You're present," they told him,  
 "but *soundless* instead!  
@@ -4730,8 +4962,8 @@ I pondered my words to them.
 
 "... *shhh*," I replied.
 
+/r/AskReddit/comments/eigp35/whats_the_best_comeback_to_a_wow_you_talk_youre/fcr2fuu/
 ----
-
 "There is nothing more I treasure,"  
 She explained and shook her head -  
 "Than a man that's made to measure  
@@ -4747,8 +4979,8 @@ Rather sweet-o, rather fine -
 If you gave the D, DeVito,  
 On an afternoon at mine."
 
+/r/AskReddit/comments/ei6sql/marilyn_monroe_was_the_sex_symbol_of_the_50s/fcododp/
 ----
-
 "Now listen son - beneath those smalls,  
 There's warts as large as bowling balls  
 Of Hepatitis A and B  
@@ -4784,8 +5016,8 @@ He eyed my rat-infested cock.
 
 I sadly said: "... on reddit, doc."
 
+/r/AskReddit/comments/ei3rnd/to_the_people_with_pm_me_as_your_username_are_you/fcntadu/
 ----
-
 "Of *course* I would love him -  
 I'd love him a *lot*.  
 I'd treat him with kindness,  
@@ -4809,8 +5041,8 @@ He took out her form and he stamped it:
 
     DENIED.
 
+/r/AskReddit/comments/ehquh9/how_would_you_feel_about_a_law_that_requires/fclirf5/
 ----
-
 He ate his chips, his cheese, his cake,  
 His salted fries,  
 his pasta-bake,  
@@ -4834,8 +5066,8 @@ Of something green or good to see -
 
 "... it's all fat-free."
 
+/r/AskReddit/comments/ehn3ua/what_do_people_think_is_healthy_but_really_isnt/fckj9p4/
 ----
-
 And in their droves,  
 they point,  
 they click,  
@@ -4849,8 +5081,8 @@ And softly say:
 
 "... *I know this thing*."
 
+/r/AskReddit/comments/ehljus/what_is_the_male_equivalent_of_fck_this_ill_just/fckf249/
 ----
-
 The man that smokes the stuff he sells,  
 The humored herb,  
 the green that smells -  
@@ -4860,8 +5092,8 @@ Is pleased as punch -
 
 ... but also poor.
 
+/r/AskReddit/comments/ehljus/what_is_the_male_equivalent_of_fck_this_ill_just/fckdqf4/
 ----
-
 When Little Timmy picked his nose,  
 And plucked the snot like string -  
 He sighed and said, "I do suppose  
@@ -4879,8 +5111,8 @@ Alas, the cops burst in just then.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/eh6fpq/what_things_should_people_never_google/fcgxukd/
 ----
-
 He watched,  
 and he watched,  
 and he watched while it played -  
@@ -4894,8 +5126,8 @@ But he added:
 
 "... *point nine*."
 
+/r/AskReddit/comments/eh6fpq/what_things_should_people_never_google/fcgnjo9/
 ----
-
 He clicked the post and then with glee,  
 He laughed and clapped and smiled to see  
 The bright, delightful words it said.
@@ -4904,8 +5136,8 @@ He googled each.
 
 ... he closed the thread.
 
+/r/AskReddit/comments/eh6fpq/what_things_should_people_never_google/fcgj7d9/
 ----
-
 When Little Timmy typed a "g",  
 He couldn't hope to know -  
 What happens when you type with glee  
@@ -4924,8 +5156,8 @@ And Timmy googled "google" then.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/eh6fpq/what_things_should_people_never_google/fcgh2f4/
 ----
-
 "Am I the *worst*," he typed with pride,  
 "Debased, disgraced and dark inside,  
 For stating nazis might be mad,  
@@ -4946,8 +5178,8 @@ They said:
 
 "... you *are* the worst."
 
+/r/AskReddit/comments/eh1tlk/whats_the_best_subreddit_to_sort_by_controversial/fceapsd/
 ----
-
 When Little Timmy's captors said:  
 "You'll spend your days inside -  
 For all your nights are long ahead,"  
@@ -4966,8 +5198,8 @@ Until the day he heard *the song*.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/egroo0/youre_being_interrogated_and_so_far_youve_held/fc9glz4/
 ----
-
 He read their responses.  
 He read with a smile.  
 And when he was finished,  
@@ -4981,8 +5213,8 @@ He said:
 
 "I MUST SPEAK."
 
+/r/AskReddit/comments/ega9qc/gym_goers_of_reddit_what_is_something_protocol/fc5wy1b/
 ----
-
 There was staining on the stripping.  
 There was smearing on the door.  
 There were drops and they were dripping  
@@ -4999,8 +5231,8 @@ So she looked up at the ceiling.
 
 Where the shit had hit the fan.
 
+/r/AskReddit/comments/efl5oe/what_product_immediately_becomes_scarier_when_you/fc1gma2/
 ----
-
 I remember the way  
 That I thought about love -  
 It was rockets and bells,  
@@ -5021,8 +5253,8 @@ For we already knew
 That your future was *me*,  
 And my future was *you*.
 
+/r/AskReddit/comments/efipjr/redditors_who_remarried_an_ex_spouse_why_did_you/fc17vhy/
 ----
-
 "I don't really like her,"  
 he thought for a while -  
 She looked and with longing,  
@@ -5031,8 +5263,8 @@ He watched her with something akin to concern.
 
 "... but *damned* if I'm paying the fee to return."
 
+/r/AskReddit/comments/efj5g9/nsfw_whats_the_kinkiest_thing_youve_ever_done/fc10dhq/
 ----
-
 When Little Timmy tried the bead,  
 With lusty dark delight -  
 He knew he'd found the things he'd need  
@@ -5049,8 +5281,8 @@ He grabbed the beads and ripped them out.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/efj5g9/nsfw_whats_the_kinkiest_thing_youve_ever_done/fc0ytr3/
 ----
-
 >I'll go outside with a curious george costume and try to communicate as one of them, hoping i blend in.
 
 They said *oo*,  
@@ -5074,8 +5306,8 @@ Don't know why and don't know how.
 
 ... maybe I'm a monkey now.
 
+/r/AskReddit/comments/effvkj/youre_looking_out_your_window_and_you_spot_a/fc0iqqs/
 ----
-
 You can stuff 'em up your booty -  
 You can pack 'em up your bum -  
 When you're filling your patootie,  
@@ -5094,8 +5326,8 @@ But you shouldn't.
 
 That ain't right.
 
+/r/AskReddit/comments/ef7ct5/surgeons_of_reddit_whats_the_weirdest_object/fbyt7tv/
 ----
-
 >I wouldn't be here if I hadn't been able to learn from my past!
 
 I've heard it said before in rhyme,  
@@ -5113,8 +5345,8 @@ You'll wake, and when it's cleared -
 Those scars will serve as memories  
 For how you persevered.
 
+/r/AskReddit/comments/ef21pu/what_has_being_on_reddit_taught_you/fbygbj1/
 ----
-
 >This is what I needed to hear right now. Thankyou for your story. I’m in a similar situation. A merry Xmas to you from a stranger!
 
 'Twas midnight when the bells were rung,  
@@ -5149,8 +5381,8 @@ and winter rhyme -
 
 *A very merry Christmas time.*
 
+/r/AskReddit/comments/ef21pu/what_has_being_on_reddit_taught_you/fbyfu9k/
 ----
-
 >Peroxide gets blood stains out
 >
 >Edit: I’m a nurse not a serial killer
@@ -5177,8 +5409,8 @@ She took out her scalpel.
 
 She said: "... I'm a *nurse.*"
 
+/r/AskReddit/comments/edwa4h/what_are_some_lesserknown_secondary_uses_for_an/fblxul5/
 ----
-
 Oh vinegar, oh vinegar,  
 There's nothing you can't do -  
 There's nothing in this whole wide world  
@@ -5197,8 +5429,8 @@ I think I love you, vinegar.
 
 You really are the best.
 
+/r/AskReddit/comments/edwa4h/what_are_some_lesserknown_secondary_uses_for_an/fblw24m/
 ----
-
 The flames,  
 they grew  
 and through the gloom,  
@@ -5211,8 +5443,8 @@ And all his neighbours all alive.
 
 "... I'm twenty five."
 
+/r/AskReddit/comments/edj2x0/what_is_something_everyone_should_know_how_to_do/fbioohl/
 ----
-
 She stared at him silent beside the machine -  
 "I'm sorry, I don't think I get what you mean.  
 There isn't a trick,  
@@ -5220,8 +5452,8 @@ and this isn't a con -
 
 You put in your clothes and you just... turn it on."
 
+/r/AskReddit/comments/edj2x0/what_is_something_everyone_should_know_how_to_do/fbikjoo/
 ----
-
 He opens up and there he sees -  
 A jar of sauce, a slice of cheese -  
 A half a peach, an empty plate -  
@@ -5238,8 +5470,8 @@ And sadly sighs aloud and then -
 
 He opens up the fridge again.
 
+/r/AskReddit/comments/ed3gju/you_get_24_hours_to_prepare_and_you_get_paid/fbfwhr1/
 ----
-
 "Come on!" said the dentist,  
 "Come one and come all!  
 Come see what I'm seeing!" he started his call.  
@@ -5260,8 +5492,8 @@ He picked up his pliers.
 
 "... well let's get 'em out."
 
+/r/AskReddit/comments/eccwli/you_are_given_a_baby_on_your_21_first_birthday/fbav795/
 ----
-
 I used to do  
 the work of two,  
 The job of me and more.  
@@ -5271,8 +5503,8 @@ to Jill and Jack.
 
 I do the work of *four*.
 
+/r/AskReddit/comments/ebp6ak/there_is_a_well_known_saying_that_goes_always/fb6wnjl/
 ----
-
 "Your eyes are as blue as the hue of the sky -  
 Your skin is as soft as a warm summer's sigh -  
 Your hair is the sun and it shines with its light -  
@@ -5293,8 +5525,8 @@ He looked at her gently and said:
 
 "... I must *shit*."
 
+/r/AskReddit/comments/ebhjop/those_that_are_bilingual_what_have_you_heard_from/fb5r72h/
 ----
-
 "The children, the younger,  
 the youth of today -  
 They're dismal, they're dreadful!"  
@@ -5315,8 +5547,8 @@ they're frightful, it's true!
 
 ... except for these two."
 
+/r/AskReddit/comments/ebhjop/those_that_are_bilingual_what_have_you_heard_from/fb5k579/
 ----
-
 "Is it weak?  
 Is it strong?  
 No it's *strong*," she explained -  
@@ -5343,8 +5575,8 @@ So we said:
 "holy *fuck*,  
 what you asking us for?"
 
+/r/AskReddit/comments/eb25wk/what_will_you_never_tolerate/fb27uzk/
 ----
-
 It's rotten, repulsive and vulgar and vile -  
 Completely deserving of hatred and bile -  
 Infected, connected to cheese and its ilk -  
@@ -5355,8 +5587,8 @@ and it's *grim* -
 
 ... and you find it in *milk*.
 
+/r/AskReddit/comments/eb25wk/what_will_you_never_tolerate/fb1rdb3/
 ----
-
 "But *how* can we, *how* can we make people care?  
 Through good education, or other means fair?  
 Through set regulations or sensible laws?  
@@ -5373,16 +5605,19 @@ For one good decision would echo in waves.
 
 They whispered: "... nah, fuck it. Let's do it with slaves."
 
+/r/AskReddit/comments/eazce0/would_you_support_a_mandatory_environmental/fb0kgg7/
 ----
+“And now’s your chance to volunteer!”  
 
-“And now’s your chance to volunteer!”  
-They smiled and said with joy and cheer,  
+They smiled and said with joy and cheer,  
+
 And though ‘twas “no” I thought to say…  
-
+
+
 They volunteered me anyway.
 
+/r/AskReddit/comments/eazce0/would_you_support_a_mandatory_environmental/fb0aidv/
 ----
-
 >"Holding onto anger is like drinking poison and expecting the other person to die."
 
 When Little Timmy clenched his fists  
@@ -5402,8 +5637,8 @@ He drained and drank the poison down.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/eaex0q/they_say_love_is_blind_what_other_emotions_have/far8ktr/
 ----
-
 Upon a throne of gilded leaf,  
 A seat of ruby-red -  
 A world of wealth beyond belief -  
@@ -5422,8 +5657,8 @@ For all their mighty stores of gold -
 
 There lived a man with *more.*
 
+/r/AskReddit/comments/ea803g/what_do_you_want_for_christmas/faovrn0/
 ----
-
 In truth, the thing I need in life  
 Is not a job,  
 and not a wife -   
@@ -5438,8 +5673,8 @@ Is just a thing that simply fits -
 
 ... a goth girl made with massive tits.
 
+/r/AskReddit/comments/ea803g/what_do_you_want_for_christmas/faosh3b/
 ----
-
 "Oh please," he whispered, "leave me be,  
 And leave my post approved -  
 It's really not my fault, you see,  
@@ -5447,16 +5682,16 @@ I only-
 
     [Thread Removed]
 
+/r/AskReddit/comments/ea803g/what_do_you_want_for_christmas/faoq6u5/
 ----
-
 She said it the way that they say that it's said -  
 She said it, I say, with a shake of her head.  
 She said it the way that they've said that they say -  
 
 But I didn't know, so she just walked away.
 
+/r/AskReddit/comments/ea4u7s/teachers_of_reddit_how_obvious_is_it_when_one/faoe9y4/
 ----
-
 At night, while you sleep in the warmth of your bed -  
 A shadow is creeping and crawling ahead.  
 It walks to your kitchen -  
@@ -5478,8 +5713,8 @@ Your kitchen is empty.
 
 It's Robin Mahfood.
 
+/r/AskReddit/comments/ea5870/what_are_some_funny_names_like_moe_lester_or_ben/fao9vms/
 ----
-
 >Barry McKockiner
 
 "Now Mister Mckockiner, come take a seat -  
@@ -5501,8 +5736,8 @@ So tell us, how was it by glory you came?"
 
 "... it's all in the name."
 
+/r/AskReddit/comments/ea5870/what_are_some_funny_names_like_moe_lester_or_ben/fao7o31/
 ----
-
 When Little Timmy went to strip,  
 He ripped his velcro pants -  
 Revealing thigh and ass and hip  
@@ -5520,8 +5755,8 @@ A thousand dollars, all in cents.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/e9eybq/whats_the_best_way_to_waste_100/faj8i79/
 ----
-
 Stones and slimes and hoes and hoppers,  
 Buttons, buckets, doors and droppers,  
 Shovels, shears, and sheets of paper,  
@@ -5542,8 +5777,8 @@ Deserts, forests, farms for feeding!
 
 ^^^:)
 
+/r/AskReddit/comments/e8sph6/you_will_be_rewarded_with_the_elixir_of_life_but/faf0rwp/
 ----
-
 Did it make its way through space -  
 When it launched from out my face?  
 Has it reached the Moon and Mars?  
@@ -5564,8 +5799,8 @@ Let's go looking.
 
 *There's* my gum.
 
+/r/AskReddit/comments/e8c5gq/when_you_sneeze_and_someone_says_bless_you_you/fabjjp8/
 ----
-
 Dark ones,  
 light ones,  
 Left ones,  
@@ -5592,8 +5827,8 @@ So for certain made to thrill you -
 
 ... someone buy me socks please, will you?
 
+/r/AskReddit/comments/e8d5ap/what_last_minute_gift_for_christmas_is_always_a/fabgqlj/
 ----
-
 You could purchase me a present,  
 Something perfect,  
 something pleasant,  
@@ -5610,8 +5845,8 @@ Or perhaps a little bunny -
 
 But I'd rather have the money.
 
+/r/AskReddit/comments/e8d5ap/what_last_minute_gift_for_christmas_is_always_a/fabbqii/
 ----
-
 There's thin ones  
 and fat ones  
 and big ones  
@@ -5642,8 +5877,8 @@ There's *terrible* shit,
 and it's here  
 on the 'net!
 
+/r/AskReddit/comments/e82pl6/if_bullshit_means_fake_and_batshit_means_crazy/fa9cbmy/
 ----
-
 She asked him her question.  
 He pondered a while.  
 She looked up at Santa and said with a smile:  
@@ -5651,8 +5886,8 @@ She looked up at Santa and said with a smile:
 
 "... you sure you just don't want a Barbie?" he said.
 
+/r/AskReddit/comments/e7uc9f/mall_santas_of_reddit_what_is_the_weirdest_thing/fa6nd52/
 ----
-
 Remember this, and don't forget -  
 That here, upon the internet,  
 There is no France, there is no Spain,  
@@ -5667,8 +5902,8 @@ But simply this eternal gem:
 
 It's really only *us* and *them*.
 
+/r/AskReddit/comments/e7tiqf/since_reddit_is_mostly_dominated_by_americans_non/fa66uwi/
 ----
-
 The heat of her brow was the first subtle sign -  
 "Initial," they said, "on the black bottom line."  
 We paid every bill till we bled from the core.
@@ -5676,8 +5911,8 @@ We paid every bill till we bled from the core.
 My daughter was sick,  
 but she's not anymore.
 
+/r/AskReddit/comments/e7tiqf/since_reddit_is_mostly_dominated_by_americans_non/fa5uk81/
 ----
-
 >The man was shot in the head and the bullet bounced off his skull.
 
 When Death arrives on wings of black  
@@ -5699,8 +5934,8 @@ for *I...*
 
 ... will headbutt him.
 
+/r/AskReddit/comments/e7qd0r/doctors_of_reddit_what_was_your_how_the_fck_did/fa3lvgd/
 ----
-
 Perhaps you've heard his story?  
 Perhaps you've heard his tale?  
 The grim, the gross, the gory?  
@@ -5725,8 +5960,8 @@ They call him only...
 
 *Dick.*
 
+/r/AskReddit/comments/e7o20y/every_character_played_by_the_same_actor_is_now_a/fa2z4xm/
 ----
-
 If she's noshin' on my nethers -  
 If she's blowin' down below -  
 If she's wrapped up tight in leathers,  
@@ -5743,8 +5978,8 @@ If she's gettin' down and to it -
 
 Then the rest is A-okay.
 
+/r/AskReddit/comments/e7d736/guys_of_reddit_how_do_you_feel_about_your_girl/f9yyzq9/
 ----
-
 If you can always make a choice  
 For *them*, and not for *you* -  
 To keep them safe;  
@@ -5762,8 +5997,8 @@ Then raise a child and share your heart.
 
 But if you can't... then don't.
 
+/r/AskReddit/comments/e7d1e0/what_do_you_regret_finding_out/f9yx9tk/
 ----
-
 "It's Sonic!" they shouted -  
 "It's Sonic!" they said -  
 "It's Sonic!" they hollered and pointed ahead -  
@@ -5773,8 +6008,8 @@ He saw them.
 
 He whispered: "... I'm better than you."
 
+/r/AskReddit/comments/e719kg/every_city_has_a_guy_everyone_knows_about_you/f9uzje9/
 ----
-
 Be fine, be fond, be fit, be fair;  
 Be gentle, tender, true -  
 Be loved, and learn to love your share;   
@@ -5792,8 +6027,8 @@ Be *good* to all.
 
 Be kind.
 
+/r/AskReddit/comments/e6br9p/you_can_make_everyone_follow_one_rule_you_make/f9paeey/
 ----
-
 I ordered a salad and sat down to wait -  
 And when it arrived on a white china plate -  
 I saw that a dagger was plunged in my snack.
@@ -5802,8 +6037,8 @@ I don't really get it.
 
 I'm not going back.
 
+/r/AskReddit/comments/e5zmxa/which_quote_is_most_improved_by_tacking_here_in/f9nlsqy/
 ----
-
 If you can place another's life before you -  
 If you can pledge you'll never look to part -  
 For just the trust of those who just adore you -  
@@ -5820,8 +6055,8 @@ Yours is the love that always will surround you -
 
 And which is more, you'll be a *man*, my son!
 
+/r/AskReddit/comments/e5kppc/instead_of_discussing_toxic_masculinity_what_does/f9kuwuc/
 ----
-
 She waited,  
 she waited  
 just counting the time -  
@@ -5835,8 +6070,8 @@ And that's when she saw him.
 
 "... *goddammit*," she said.
 
+/r/AskReddit/comments/e53ten/what_is_the_fastest_way_a_room_of_happy_people/f9i2324/
 ----
-
 The email had started: "... it's excellent news!  
 We're picking you mountains of pizza to choose!  
 We're getting you chicken and peppers and cheese -  
@@ -5856,8 +6091,8 @@ The next email started:
 
 "Addendum - *not you*."
 
+/r/AskReddit/comments/e53ten/what_is_the_fastest_way_a_room_of_happy_people/f9i12fi/
 ----
-
 They gathered together  
 with wishes before -  
 They gathered with hopes,  
@@ -5871,8 +6106,8 @@ Who said to them:
 
 "... no."
 
+/r/AskReddit/comments/e51fyc/instead_of_giving_presents_santa_now_puts_things/f9hv0te/
 ----
-
 >Kidney beans? Good. Pineapple? Good. Chicken noodle soup? Good.
 
 "Bananas in baskets and chestnuts in chests!  
@@ -5902,8 +6137,8 @@ He whispered with glee.
 
 ... it's all good to me."
 
+/r/AskReddit/comments/e4g2nm/youre_a_burglar_but_you_only_steal_thing_to/f9bud1d/
 ----
-
 "Who took it?  
 Who took it?"  
 He said: "was it *you*?"  
@@ -5927,8 +6162,8 @@ I told him I didn't.
 
 I did.
 
+/r/AskReddit/comments/e4g2nm/youre_a_burglar_but_you_only_steal_thing_to/f9bq3cz/
 ----
-
 When Little Timmy took a trip  
 To meet the Moon and Mars -  
 He said: "How sweet to sail a ship  
@@ -5946,8 +6181,8 @@ So Timmy opened up the door.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/e3z9n5/if_gifs_could_be_tattooed_then_which_one_will_you/f96qxy6/
 ----
-
 I would stab you.  
 I would shoot you.  
 I would shoot you with a gun.  
@@ -5968,8 +6203,8 @@ Or I wouldn't.
 
 Who can say?
 
+/r/AskReddit/comments/e3g1wy/you_are_a_18_year_old_boy_who_is_about_to_meet/f93fgb7/
 ----
-
 When Little Timmy made a joke,  
 He turned, and with a smile -  
 He said: "... *and so am I!*" he spoke,  
@@ -5982,8 +6217,8 @@ His girlfriend's father, not so much.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/e3g1wy/you_are_a_18_year_old_boy_who_is_about_to_meet/f93boj9/
 ----
-
 He watched as he polished his gun with a glare -  
 A brazen and blatant intention to scare.  
 He watched as he turned to the bullets to pick -  
@@ -5997,8 +6232,8 @@ He said: "... you're her daddy."
 
 He said: "... *so am I.*"
 
+/r/AskReddit/comments/e3g1wy/you_are_a_18_year_old_boy_who_is_about_to_meet/f932u8j/
 ----
-
 Watch that motherfucker go!  
 Hasty racing, to and fro!  
 Swiftly pacing, chasing speed!  
@@ -6018,8 +6253,8 @@ Who's that motherfucker?
 
 *Jim.*
 
+/r/AskReddit/comments/e31v9o/what_scientific_experiment_would_you_run_if_money/f90lzwc/
 ----
-
 When Little Timmy's father spoke,  
 And said: "... about the *boy* -  
 We'll bring him up from other folk,  
@@ -6039,8 +6274,8 @@ And so they did.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/e31v9o/what_scientific_experiment_would_you_run_if_money/f90fz0k/
 ----
-
 >My empty stomach and hungry brain didn't know the difference, and I could hear my stomach growling at the smell.
 
 There she saw 'em  
@@ -6084,8 +6319,8 @@ Speedin' out in fluids frightful.
 
 "... delightful."
 
+/r/AskReddit/comments/e2y4jb/surgeons_who_work_with_amputating_limbs_what_was/f8zo0pa/
 ----
-
 When Little Timmy took a leap  
 From off the highest height -  
 He tucked his arms and legs in deep,  
@@ -6103,8 +6338,8 @@ But Timmy's friend was full of *shit.*
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/e22psv/fall_damage_is_now_disabled_what_are_you_going_to/f8tlpn9/
 ----
-
 "Oh daddy, come look what I painted," she said -  
 "It's *you*," she explained, "with a smile on your head!  
 It's me and it's you and it's mommy and *me* -  
@@ -6129,8 +6364,8 @@ He said:
 
 "... not right now."
 
+/r/AskReddit/comments/e1h9eo/men_of_reddit_what_myth_about_men_is_100_untrue/f8q5c1z/
 ----
-
 *The world -*  
 *the Earth is not the same.*  
 *As forests burn in fire and flame,*  
@@ -6150,16 +6385,16 @@ I've looked outside.
 
 It seems all right.
 
+/r/AskReddit/comments/e18g6m/if_ok_boomer_was_a_digital_assistant_like_ok/f8o5i4g/
 ----
-
 When Little Timmy saw the sign,  
 He made his choice with pride -  
 He said: "I'm sure it tastes just *fine*."
 
 And Timmy fucking died.
 
+/r/funny/comments/e13e62/how_to_remove_an_ink_stain/f8mpbr8/
 ----
-
 *How I wish,*  
 *how I wish that he'd turn off his phone -*  
 *It's a pain, and he's making a noise on his own -*  
@@ -6169,8 +6404,8 @@ And Timmy fucking died.
 
 *... but I won't.*
 
+/r/AskReddit/comments/e0xyqa/to_the_people_who_have_keyboard_clicking_sounds/f8li2i2/
 ----
-
 Through the dark they slither, seeping,  
 Turning, twisting, crawling, creeping,  
 Shifting round in heaps of hitching,  
@@ -6188,8 +6423,8 @@ Worming, squirming, gathered ready.
 
 "... *I don't think so*," whispers Teddy.
 
+/r/AskReddit/comments/e0t3c0/employees_of_buildabear_what_is_the_weirdest/f8ibh8o/
 ----
-
 He posted his thoughts  
 for the whole world to see -  
 "A little," he whispered,  
@@ -6205,8 +6440,8 @@ He'd made someone smile.
 
 ^^^:)
 
+/r/AskReddit/comments/e0fiua/for_people_who_dont_answer_anything_why_are_you/f8e2a0v/
 ----
-
 We arrived here unrelated -  
 We were born a life apart -  
 But I think we only waited  
@@ -6223,8 +6458,8 @@ And they'll say you're not my baby -
 
 But you always are to me.
 
+/r/AskReddit/comments/e07nci/people_who_have_had_friends_stab_you_in_the_back/f8da5fd/
 ----
-
 "I have to keep looking,"  
 he speaks in the night -  
 For gone are the days  
@@ -6236,8 +6471,8 @@ He stops on a comment.
 
 He sighs and scrolls down.
 
+/r/AskReddit/comments/e07nci/people_who_have_had_friends_stab_you_in_the_back/f8d8kot/
 ----
-
 The world is old and cold and grim,  
 And *gone* are wisdoms,  
 wits and whim,  
@@ -6252,8 +6487,8 @@ My foreskin weeps.
 
 *My foreskin weeps.*
 
+/r/AskReddit/comments/e07nci/people_who_have_had_friends_stab_you_in_the_back/f8d6gly/
 ----
-
 When Little Timmy went to school  
 To learn the things he'd need -  
 His teacher thought it might be cool  
@@ -6271,8 +6506,8 @@ And Tim *remembered* what he'd learned.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/e00no9/youre_in_high_school_and_if_you_can_get_your/f8bpkxb/
 ----
-
 "That *man*," he observed  
 with a blink of surprise -  
 "That *man*," he observed  
@@ -6282,8 +6517,8 @@ with a shake of his head -
 
 "... that man has a tie on his *penis*," he said.
 
+/r/AskReddit/comments/e00f39/if_we_have_casual_sex_that_means_that_ranked/f8bok7z/
 ----
-
 In youth, I went to bed with dreams  
 Of shining stars and silver streams,  
 And chances new,  
@@ -6305,8 +6540,8 @@ For now I'm old -
 
 I do not dream.
 
+/r/AskReddit/comments/dzsu1u/what_keeps_you_up_at_night/f8ape90/
 ----
-
 He raged and he ranted,  
 he bellowed and blew -  
 He cried and he clamored,  
@@ -6318,8 +6553,8 @@ I told him politely:
 
 "... I'm *here for you*, bro."
 
+/r/AskReddit/comments/dzrz49/whats_your_favorite_phrases_for_telling_someone/f8anzr8/
 ----
-
 >He only has 1 day.
 
 "I'll help you discover a woman," he said -  
@@ -6337,8 +6572,8 @@ And this I can teach you...
 
 ... *tomorrow*," he said.
 
+/r/AskReddit/comments/dzoet3/women_if_you_became_a_man_for_a_day_and_had_just/f89gz21/
 ----
-
 "And I wish," he remarked,  
 "I could be there for you -  
 Taking aim,  
@@ -6354,8 +6589,8 @@ So I did.
 
 ^^^F
 
+/r/gaming/comments/dzn4yy/halflife_alyx_announcement_trailer/f89067h/
 ----
-
 I stumbled and tripped -  
 but I didn't fall down.  
 She stood and she stared  
@@ -6367,8 +6602,8 @@ The office was silent.
 
 "... how *dare* you?" she said.
 
+/r/AskReddit/comments/dxyc96/when_youre_lying_in_bed_do_you_ever_randomly/f7xjwnv/
 ----
-
 ... and still, in the calm of an evening in bed,  
 That singular moment replays in my head,  
 I think of the feeling I felt as a boy -  
@@ -6392,8 +6627,8 @@ for a while,
 I just smile  
 and forget.
 
+/r/AskReddit/comments/dxyc96/when_youre_lying_in_bed_do_you_ever_randomly/f7xif3v/
 ----
-
 "Whenever I'm making a costume for me -  
 I make it as *right* and as *real* as can be -  
 I don't buy a suit or a wig from a shelf -  
@@ -6401,8 +6636,8 @@ and *that's*," he explained...
 
 "... why I blinded myself."
 
+/r/AskReddit/comments/dxqomv/cosplayers_whats_one_cosplay_you_will_never_do/f7vwzgj/
 ----
-
 "Be sceptical, darling,  
 be brave and be bold -  
 You must query *everything*,  
@@ -6414,8 +6649,8 @@ He laughed with delight.
 
 "That's the spirit!" he said.
 
+/r/AskReddit/comments/dxmp0a/what_are_some_famous_quotes_people_misuse_by_not/f7ud2j3/
 ----
-
 You did not learn this fact in school -  
 But given *half* the chance to rule -  
 A chance to take their wayward way,  
@@ -6431,8 +6666,8 @@ They'd start a world of pain and woe.
 
 'Cause birds are flocking fascists, bro.
 
+/r/AskReddit/comments/dxlo2r/which_extinct_species_would_you_bring_back_if_you/f7u9b1i/
 ----
-
 "I have done it!" he said,  
 with a nod of his head,  
 and a sigh of contentment and glee -  
@@ -6449,12 +6684,12 @@ and they zipped and they zoomed...
 
 ... and they died.
 
+/r/AskReddit/comments/dxlo2r/which_extinct_species_would_you_bring_back_if_you/f7u1w2o/
 ----
-
 [removed]
 
+/r/AskReddit/comments/dxabg7/massage_therapist_or_masseuse_have_you_ever_had_a/f7p5z93/
 ----
-
 Dishes dry and unappealing?  
 Dinners poor from floor to ceiling?  
 Flavours faulty,  
@@ -6467,8 +6702,8 @@ Work to feed your soul or free it!
 Take your menu -  
 MSG it!
 
+/r/AskReddit/comments/dx866s/what_actually_100_lived_up_to_the_hype/f7p2tzw/
 ----
-
 He searched for an answer,  
 a nugget of truth -  
 A fragment of fact  
@@ -6479,8 +6714,8 @@ He searched for it sadly.
 
 He whispered: "... at last."
 
+/r/AskReddit/comments/dxabg7/massage_therapist_or_masseuse_have_you_ever_had_a/f7owssa/
 ----
-
 You're my comfort and my pleasure,  
 You're the apple of my eye!  
 You're as precious as a treasure,  
@@ -6501,8 +6736,8 @@ But I think I like you more.
 
 ^^^:)
 
+/r/AskReddit/comments/dwut73/what_do_you_use_to_remind_yourself_that/f7m34l2/
 ----
-
 It's an awesome thing you're sharing,  
 And it wouldn't be amiss -  
 To deliberate,  
@@ -6510,8 +6745,8 @@ declaring:
 
 *You could save a life like this.*
 
+/r/AskReddit/comments/dwut73/what_do_you_use_to_remind_yourself_that/f7m2lse/
 ----
-
 >... I plan on keeping my little plastic stroke pumpkin for the rest of my life however long or short it may be.
 
 When I'm feeling down and out -  
@@ -6537,8 +6772,8 @@ When I need you...
 
 there you are.
 
+/r/AskReddit/comments/dwut73/what_do_you_use_to_remind_yourself_that/f7m1e3n/
 ----
-
 my name is Cat,  
 an even tho  
 you cry sometyme  
@@ -6550,8 +6785,8 @@ i'll hol you close.
 
 im there for you.
 
+/r/AskReddit/comments/dwut73/what_do_you_use_to_remind_yourself_that/f7lz3sd/
 ----
-
 When days are hard, and nights are long;  
 When storms are raging rough -  
 When all my dreams are non-too-strong,  
@@ -6581,8 +6816,8 @@ and breathe a sigh.
 
 And poetry remains.
 
+/r/AskReddit/comments/dwut73/what_do_you_use_to_remind_yourself_that/f7lx4f6/
 ----
-
 And it's not the way she's acting,  
 Or the jobs she's picked to do -  
 Though they're both a bit distracting,  
@@ -6601,8 +6836,8 @@ Something other.
 
 It's the goop.
 
+/r/AskReddit/comments/dwr3af/what_actoractress_instantly_ruins_a_movie_for_you/f7le8k9/
 ----
-
 Whenever I'm a bother -  
 Whenever I've had 'fun' -   
 Whenever I have pained my pa  
@@ -6618,8 +6853,8 @@ A total shame to see -
 I just invite my sister 'round  
 To take the heat off me.
 
+/r/AskReddit/comments/dwdn5e/you_get_a_billion_dollars_if_you_can_start_a/f7jbuum/
 ----
-
 And over the table,  
 I watched them regret -  
 A thousand offenses they'd never forget -  
@@ -6640,8 +6875,8 @@ I rose from the table and told them with cheer:
 
 ... I'll see you next year."
 
+/r/AskReddit/comments/dwdn5e/you_get_a_billion_dollars_if_you_can_start_a/f7j5ndg/
 ----
-
 >I'll eat my way out.
 
 He mashed with his mashers,  
@@ -6674,8 +6909,8 @@ He found, to his horror:
 
 *You are what you eat.*
 
+/r/AskReddit/comments/dwdn5e/you_get_a_billion_dollars_if_you_can_start_a/f7j4fxi/
 ----
-
 >Try to stab someone? You trip and fall on the knife instead.
 
 When Little Timmy made a plan  
@@ -6694,8 +6929,8 @@ But Little Timmy tripped and fell.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/dvxpmw/god_has_become_tired_of_humanity_recently_retired/f7fx4ed/
 ----
-
 "... and just beside the wheel," said she,  
 "Your *indicator*'s here -  
 You make your choice and drivers see  
@@ -6714,8 +6949,8 @@ He looked beside the wheel and said:
 
 "... I won't be using *that*."
 
+/r/AskReddit/comments/dvshol/to_the_deaf_who_gained_the_ability_to_hear_what/f7exvlg/
 ----
-
 "Oh teach me this power!" she said with delight -  
 "For I shall be using it night after night!  
 I'll dream and I'll drift and how swiftly I'll pass!"  
@@ -6724,8 +6959,8 @@ I'll dream and I'll drift and how swiftly I'll pass!"
 
 ... it wasn't, alas.
 
+/r/AskReddit/comments/dvr6h0/what_is_something_you_consider_yourself_pretty/f7eu4nl/
 ----
-
 If it's plumbin' or construction -  
 If it's learnin' how to code -  
 If it's bakin'-cake-production,  
@@ -6754,8 +6989,8 @@ If it's any chance for learnin' -
 
 ... well I'll do my very best.
 
+/r/AskReddit/comments/dvr6h0/what_is_something_you_consider_yourself_pretty/f7eos7n/
 ----
-
 With all that extra time I had,  
 With all that extra time...
 
@@ -6785,8 +7020,8 @@ I'd live my dreams...
 ... but in the end,  
 I'd only waste it though.
 
+/r/AskReddit/comments/dus57f/how_do_you_feel_about_a_4_day_work_week/f78e4oq/
 ----
-
 "I just think it's better -  
 I just think it's real.  
 I just think it's finer -  
@@ -6796,8 +7031,8 @@ I just like the touch of the mobile," he said -
 
 ... not my *head*."
 
+/r/AskReddit/comments/duevb0/its_the_year_2050_and_the_term_ok_millennial_is/f76fy2k/
 ----
-
 When I die,  
 and when they find me,  
 Then they'll find I leave behind me  
@@ -6825,8 +7060,8 @@ Mac and cheese and misdirections.
 
 All of these are my collections.
 
+/r/AskReddit/comments/ducaud/your_grown_children_are_cleaning_out_your_house/f75beiz/
 ----
-
 "Just imagine how exciting,  
 How *inviting* it will be -  
 Revolutionize-rewriting,  
@@ -6845,8 +7080,8 @@ Let us start a...
 
 ... *please don't leave*."
 
+/r/AskReddit/comments/duby52/people_with_expired_nondisclosureagreements_whats/f74ntbr/
 ----
-
 "Invest in your future,  
 and make a return -  
 That's *twice*  
@@ -6857,8 +7092,8 @@ I'm getting ahead!
 
 ... I'm putting my money in porno," he said.
 
+/r/AskReddit/comments/duby52/people_with_expired_nondisclosureagreements_whats/f74kx25/
 ----
-
 You *might* have seen a sub for [cats](https://www.reddit.com/r/cats/),  
 Or [cars](https://www.reddit.com/r/cars/) and [books](https://www.reddit.com/r/books/) and [pics](https://www.reddit.com/r/pics/) -  
 For [horses](https://www.reddit.com/r/Equestrian/), [forces](https://www.reddit.com/r/AirForce/), [hats](https://www.reddit.com/r/hats/) and [bats](https://www.reddit.com/r/BatFacts/),  
@@ -6881,8 +7116,8 @@ For [tits](https://www.reddit.com/r/tits/)
 and [tits](https://www.reddit.com/r/Titties/)  
 and [tits](https://www.reddit.com/r/RunescapeGoneWild/).
 
+/r/AskReddit/comments/duby52/people_with_expired_nondisclosureagreements_whats/f74kkh2/
 ----
-
 "I'm sorry," you tell her,  
 "I must stop you there -  
 It's not that I'm bored,  
@@ -6894,8 +7129,8 @@ I just have to go...
 
 ... cause I don't want to stay."
 
+/r/AskReddit/comments/dtun8g/whats_a_huge_red_flag_when_meeting_new_people/f6zgjkt/
 ----
-
 >... my certain 'final destination' moment...
 
 And Satan, cloven hooves and eyes  
@@ -6905,8 +7140,8 @@ He whispered:
 
 "... maybe *next time* though."
 
+/r/AskReddit/comments/dtttsl/you_must_die_in_next_48_hours_if_you_get_a_darwin/f6zepw8/
 ----
-
 "I *cannot* be certain,  
 beyond any doubt -  
 It *isn't* for sure,  
@@ -6916,8 +7151,8 @@ or a fact to confront -
 But *something* is telling me  
 you are a *cunt.*"
 
+/r/AskReddit/comments/dtun8g/whats_a_huge_red_flag_when_meeting_new_people/f6zaxob/
 ----
-
 When Little Timmy took a ride  
 To see the open sea -  
 "How *nice* it is to spy the tide,"  
@@ -6936,8 +7171,8 @@ And so, he gave the train a lick.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/dtttsl/you_must_die_in_next_48_hours_if_you_get_a_darwin/f6z72ym/
 ----
-
 Certain themes of conversation  
 Resonate around the nation -  
 Small contentions oft repeated  
@@ -6959,16 +7194,16 @@ Blaming, shaming one another.
 
 ... let us talk of walls, my brother.
 
+/r/AskReddit/comments/dt8ozq/if_trump_was_running_against_trump_what_would_he/f6vyj6f/
 ----
-
 "It's just a kid," they spoke and sighed -  
 They shook their heads and said with pride,  
 "It's just the harmless ways of youth!"  
 
 *But little did they know the truth...*
 
+/r/AskReddit/comments/dt1m8c/what_is_considered_cute_when_done_by_a_kid_but/f6uxkb3/
 ----
-
 You must not touch a person small.  
 You must not touch them, not at all.  
 You must not touch them where they stand.  
@@ -6989,8 +7224,8 @@ You must not touch them.
 
 Not at all.
 
+/r/AskReddit/comments/dt1m8c/what_is_considered_cute_when_done_by_a_kid_but/f6uwfqh/
 ----
-
 A friend of mine -  
 let's call him Bill -  
 He sits on laps of others still.  
@@ -7012,8 +7247,8 @@ a *tip* to sup.
 
 I really wish he'd just grow up.
 
+/r/AskReddit/comments/dt1m8c/what_is_considered_cute_when_done_by_a_kid_but/f6ut1s4/
 ----
-
 He wiggled his butt  
 as he ran in the breeze -  
 A laugh of delight  
@@ -7024,8 +7259,8 @@ in the nude and at peace -
 But as he was thirty,  
 they called the police.
 
+/r/AskReddit/comments/dt1m8c/what_is_considered_cute_when_done_by_a_kid_but/f6uihwz/
 ----
-
 He typed his reply with a passion, a pique,  
 An ardent ambition, a spirit to speak -  
 He wrote with abandon, he penned with a zest,  
@@ -7044,8 +7279,8 @@ He'd read what he'd written.
 
 He said: "... this is *shit.*"
 
+/r/AskReddit/comments/dsv3sk/how_many_of_you_also_type_out_comments_then_just/f6s4hsp/
 ----
-
 "Now I *know* you're afraid,  
 and you've called in alarm,  
 For you're scared that you've strayed  
@@ -7060,8 +7295,8 @@ you see -
 Though we'd love to attend,  
 there's a *cat* in a *tree*."
 
+/r/AskReddit/comments/dsfgao/youve_been_kidnapped_but_the_kidnapper_allows_you/f6phlu1/
 ----
-
 "I know that you're planning to *kill me*," she spoke -  
 "You've racks of utensils to prod me and poke.  
 You've knives and you've blades and in each place I look -  
@@ -7082,8 +7317,8 @@ But let us begin with a *selfie*," she said.
 
 ^^^:)
 
+/r/AskReddit/comments/dsfgao/youve_been_kidnapped_but_the_kidnapper_allows_you/f6pbu4h/
 ----
-
 "The more you learn,  
 the more you earn,"  
 my father said to me -  
@@ -7097,8 +7332,8 @@ you do an arts degree...
 
 ^^^*sigh.*
 
+/r/AskReddit/comments/dq3uqh/what_would_12_yr_old_you_think_of_how_you_are_now/f612wm2/
 ----
-
 "Perhaps I'll be a sailor  
 and I'll sail the seas between -  
 Perhaps I'll be a tailor  
@@ -7129,8 +7364,8 @@ He softly sighed with sorrow.
 
 "... or maybe not," he said.
 
+/r/AskReddit/comments/dq3uqh/what_would_12_yr_old_you_think_of_how_you_are_now/f60r9gz/
 ----
-
 "Who's that awesome dude right there?  
 Awesome dude and few compare?   
 Awesome dude with kids and wife?  
@@ -7154,8 +7389,8 @@ Who's that awesome-*oh...*
 
 ^^^:)
 
+/r/AskReddit/comments/dq3uqh/what_would_12_yr_old_you_think_of_how_you_are_now/f60otlv/
 ----
-
 And know,  
 no matter *where* we are,  
 or here,  
@@ -7169,8 +7404,8 @@ I know for certain:
 
 *Home is you.*
 
+/r/AskReddit/comments/dp6uxu/redditors_who_do_not_have_a_romantic_how_we_first/f5tr3l9/
 ----
-
 You hope that you're making it better.  
 
 You *hope*.  
@@ -7182,8 +7417,8 @@ As long as it mattered to even one kid.
 Amazing,  
 *amazing* to know that it did.
 
+/r/AskReddit/comments/dp56ya/people_who_had_a_teacher_change_their_life_who/f5t8fov/
 ----
-
 >"... I'm back for your first born."
 
 When Little Timmy went to bed,  
@@ -7202,8 +7437,8 @@ He hung his head and sighed.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/dp56ya/people_who_had_a_teacher_change_their_life_who/f5t7tcd/
 ----
-
 They asked,  
 and they asked,  
 and they *asked* even though -  
@@ -7216,8 +7451,8 @@ like I'd done so before.
 And one day,  
 they just didn't ask anymore.
 
+/r/AskReddit/comments/douu21/whats_the_fastest_way_to_lose_all_of_your_friends/f5rfcfk/
 ----
-
 His mother's the finest,  
 the first of her name!  
 Acclaimed and exalted,  
@@ -7228,8 +7463,8 @@ And endlessly known...
 
 ... in the *biblical* sense.
 
+/r/AskReddit/comments/dooi6l/redditors_who_cook_whats_the_biggest_no_no_thing/f5pm7iz/
 ----
-
 "And how can I help?" he enquired with a smile.   
 He picked up a peeler and played for a while.  
 He hovered.  
@@ -7239,8 +7474,8 @@ I looked at him kindly and whispered:
 
 "... get out."
 
+/r/AskReddit/comments/dooi6l/redditors_who_cook_whats_the_biggest_no_no_thing/f5ph6ef/
 ----
-
 "We need to talk," was it all said -  
 The note she'd left upon the bed.  
 Her bags were packed.  
@@ -7259,8 +7494,8 @@ To scrawl a line beneath her note.
 
 "... I think I'd rather *not*," I wrote.
 
+/r/AskReddit/comments/doo2we/what_noises_give_you_chills/f5pfpk7/
 ----
-
 "When you're needing someone scary,  
 Someone vicious,  
 someone vile -  
@@ -7281,8 +7516,8 @@ Look no further.
 
 This is me."
 
+/r/AskReddit/comments/do1z8f/actors_who_were_selected_for_a_role_described_as/f5juv5f/
 ----
-
 "How dare you?" he whispered, indignant with rage -  
 "I wasn't a *rapist* confined in a cage!  
 I'd never pretend to be those who abuse!  
@@ -7290,16 +7525,16 @@ I *wasn't* a rapist.
 
 I just hated Jews."
 
+/r/AskReddit/comments/do1z8f/actors_who_were_selected_for_a_role_described_as/f5ju644/
 ----
-
 He pondered the plight of the man in the tale -  
 Fatigued to the point he was *destined* to fail.  
 He looked at the thread with a tear in his eye.  
 
 "... but who took the donuts?" he said with a sigh.
 
+/r/AskReddit/comments/do2o25/for_those_of_you_who_have_been_sleep_deprived/f5jtwbk/
 ----
-
 >Alternatively, use pigs.
 
 When Little Timmy bought a pig,  
@@ -7319,8 +7554,8 @@ But Timmy fainted in the pen.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/dnty43/what_is_one_fact_you_know_that_will_make_other/f5ggc1j/
 ----
-
 And as he was ditching her corpse in the lake -  
 He opened the comments,  
 in need of a break.  
@@ -7330,8 +7565,8 @@ He looked at the body.
 
 He said: "... change of plan."
 
+/r/AskReddit/comments/dnty43/what_is_one_fact_you_know_that_will_make_other/f5gdeju/
 ----
-
 "So you say that you're a dancer -  
 But we only want to know -  
 Have you had a little cancer?  
@@ -7363,8 +7598,8 @@ And we'd love to hear your story…
 
 If it boosts a bottom line."
 
+/r/AskReddit/comments/dnp580/you_suddenly_appear_on_the_stage_of_americas_got/f5eqws6/
 ----
-
 >If you can't have *open communication*... that's the problem.
 
 I just... didn't say it.  
@@ -7382,8 +7617,8 @@ But keeping them secret made certain the fall.
 
 And now I have no one to talk to at all.
 
+/r/AskReddit/comments/dnd0p4/married_couples_who_sleep_in_separate_rooms_why/f5as3p1/
 ----
-
 She stood by his grave with a tear on her cheek.  
 Unable to leave,  
 but unable to speak.  
@@ -7394,8 +7629,8 @@ She crouched in the silence.
 
 "... you *bastard*," she said.
 
+/r/AskReddit/comments/dnd0p4/married_couples_who_sleep_in_separate_rooms_why/f5an5c0/
 ----
-
 >Thought my life was over until I saw how much worse the other convicts were...
 
 When I was young,  
@@ -7419,8 +7654,8 @@ Perspective helps.
 
 A lot.
 
+/r/AskReddit/comments/dn1ab4/ex_convicts_of_reddit_did_you_find_prison/f57qrct/
 ----
-
 >Incog-neato
 
 "There's nothing as super," he spoke with a sigh -  
@@ -7440,8 +7675,8 @@ There's nothing that's better than scratching your head!
 
 ... but do it in *secrecy*, buddy," he said.
 
+/r/AskReddit/comments/dmy7x3/what_do_you_use_incognito_for/f56mwgl/
 ----
-
 He reached for the lamp  
 with a dream in his-  
 *slap*  
@@ -7467,8 +7702,8 @@ and then -
 
 He chose not to reach for it ever again.
 
+/r/AskReddit/comments/dmwlk3/youve_been_granted_immortality_youre_a_minimum/f56l54k/
 ----
-
 A tissue's fine  
 (if you've the time,  
 and option, I suppose) -  
@@ -7494,8 +7729,8 @@ It *fits*.
 
 So why pretend?
 
+/r/AskReddit/comments/dmvp9j/what_is_something_everybody_does_but_noone_wants/f563bd9/
 ----
-
 He spoke with a passion,  
 devotion and grace -  
 A vision of wit and of poise from his place -  
@@ -7503,8 +7738,8 @@ A peace and a pride in the words that he shared -
 But brother fucked horses,  
 so nobody cared.
 
+/r/AskReddit/comments/dmsbc0/back_in_the_day_everyone_had_horses_and_only_the/f54o2gs/
 ----
-
 When I am dead, I say: move on.  
 I will not care.  
 I will be gone.  
@@ -7524,8 +7759,8 @@ I will not see.
 
 I will be dead.
 
+/r/AskReddit/comments/dmkwkk/if_you_could_get_the_realass_answer_to_any/f5330vl/
 ----
-
 At first I was angry -  
 at first I was vexed -  
 enraged and indignant,  
@@ -7536,8 +7771,8 @@ but then I considered...
 
 ... and now it's much worse.
 
+/r/AskReddit/comments/dmibrp/how_do_you_get_yourself_out_of_a_bad_mood/f52jev1/
 ----
-
 >... there will be obstacles, but when you assume that they can be overcome (and when you approach them with a slightly off-putting smile), you'll often find that they're more eager to get out of your way.
 
 If maybe you're weary of feeling alone -  
@@ -7560,8 +7795,8 @@ It's all you can do.
 
 ^^^:)
 
+/r/AskReddit/comments/dmibrp/how_do_you_get_yourself_out_of_a_bad_mood/f52hx46/
 ----
-
 I do not want the monster, friend.  
 I do not want it,  
 in the end.  
@@ -7577,8 +7812,8 @@ I'd rather have the money.
 
 *Kyle.*
 
+/r/AskReddit/comments/dm2amj/dear_karens_and_kyles_of_reddit_how_has_your_life/f4x0um5/
 ----
-
 She looks at the things that she knitted before -  
 A warm woolen sweater,  
 and mittens,  
@@ -7597,8 +7832,8 @@ She puts down her needle.
 
 She picks up her gun.
 
+/r/AskReddit/comments/dlrz06/how_did_you_get_your_scars/f4umx7t/
 ----
-
 All the dearest things to plunder,  
 Thieve and walk away with wonder,  
 Pillage, pilfer, palm and pocket,  
@@ -7631,8 +7866,8 @@ What I want is far exceeding.
 
 ... sadly, time is not for taking.
 
+/r/AskReddit/comments/dl4xce/what_do_the_rich_buy_that_the_poor_dont_even_know/f4o0qeh/
 ----
-
 *Take your phone from out your pants!*  
 *Point it while you sing and dance!*  
 *Press "record" and watch it go!*  
@@ -7641,8 +7876,8 @@ What I want is far exceeding.
 
 ... no.
 
+/r/AskReddit/comments/dkkagz/people_who_pay_money_to_go_to_see_a_live_show_and/f4httle/
 ----
-
 It's *early*.  
 
 He walks to the sink in a dream.  
@@ -7671,8 +7906,8 @@ It's *early*.
 
 He knows what it is he must do.
 
+/r/AskReddit/comments/dkeh0y/out_of_the_77_billion_people_on_earth_what_do_you/f4e4civ/
 ----
-
 They saw as she soared through the air up above -  
 A vision of grace and of joy and of love -  
 A shape in the wind as she sailed on a sigh -  
@@ -7684,8 +7919,8 @@ And then, when her feet touched the earth at the place -
 
 She fell to the ground with a hole in her face.
 
+/r/AskReddit/comments/dk3ukm/whats_the_coolest_way_to_die/f4avj6x/
 ----
-
 She crossed with intrigue  
 to the door where it sat -  
 A brown paper envelope,  
@@ -7699,8 +7934,8 @@ She whispered:
 
 "... it's shit."
 
+/r/AskReddit/comments/diq41q/whats_the_worst_defense_youve_seen_someone_make/f3y2if2/
 ----
-
 It's hard to take.  
 It's hard to know.  
 And though I *wish*  
@@ -7727,8 +7962,8 @@ I think you will.
 
 I think you will.
 
+/r/AskReddit/comments/di8aob/husbands_and_wives_that_got_divorced_after_20/f3ul2ed/
 ----
-
 'Tis the passion of a brother,  
 or a sister,  
 or a ma -  
@@ -7747,8 +7982,8 @@ most elitist way to be -
 when you have yourself the sweetest  
 Lusty lovin' family!
 
+/r/AskReddit/comments/dhrnqg/what_would_happen_if_facebook_shut_down_and_all/f3qv2fr/
 ----
-
 He gifted them gold with a smile on his face -  
 A vision of kindness and goodness and grace -  
 A small yellow star on the comment ahead.  
@@ -7757,8 +7992,8 @@ He looked at it fondly.
 
 "... you *peasant*," he said.
 
+/r/AskReddit/comments/dha9qx/redditors_who_give_out_awards_on_posts_that_dont/f3m3u8y/
 ----
-
 "You don't *have* to be gay,"  
 he explained with a smile -  
 "You don't *have* to be gay,"  
@@ -7770,8 +8005,8 @@ and he leant on the car -
 
 ... but it helps if you are."
 
+/r/AskReddit/comments/dh8vo0/what_looked_amazing_in_the_ads_but_turned_out_to/f3m1gwc/
 ----
-
 >... made it so I could remotely update and change things...
 
 "But these *ads*," she whispered sadly,  
@@ -7781,8 +8016,8 @@ So I checked her searches gladly.
 
 And I never did again.
 
+/r/AskReddit/comments/dh8vo0/what_looked_amazing_in_the_ads_but_turned_out_to/f3lq6l6/
 ----
-
 "At the end of my dick is a *hole*," he declared -  
 "I've looked in the mirror,  
 I've gazed and I've stared!   
@@ -7803,8 +8038,8 @@ The other was frowning.
 
 "... just *one*?" he replied.
 
+/r/AskReddit/comments/dgi4a2/people_whose_first_relationship_was_very_long/f3cwe2s/
 ----
-
 ... and I loved you,  
 and I love you,  
 For I tried to hold the spark -  
@@ -7824,8 +8059,8 @@ But I hope that you don't blame me.
 
 I just can't be there for you.
 
+/r/AskReddit/comments/dgi4a2/people_whose_first_relationship_was_very_long/f3ct0om/
 ----
-
 In the darkness,  
 he was waiting -  
 In the silence,  
@@ -7838,8 +8073,8 @@ So he greeted it politely.
 
 "... I'm a fissure," he explained.
 
+/r/AskReddit/comments/dghcy7/your_username_is_now_what_you_do_for_a_living_how/f3cith8/
 ----
-
 A pussy; a pocket; a coochie; a cunt -  
 A foof and a flange or the fur at the front -  
 A taco; a beaver; a growler; a gap -  
@@ -7862,8 +8097,8 @@ There's many vaginas.
 
 They're not all the same.
 
+/r/AskReddit/comments/dgi4a2/people_whose_first_relationship_was_very_long/f3cb90y/
 ----
-
 "When I move my *dick*," he started,  
 "Winds are stirred and waves are parted!  
 Walls and windows quake and quiver,  
@@ -7882,8 +8117,8 @@ Feel the flicker when I free it!
 
 ... sadly though, you cannot see it."
 
+/r/AskReddit/comments/dg1khd/japanese_people_of_reddit_how_do_you_know_what/f38orfi/
 ----
-
 "A guy," he said,  
 "A guy, not me -  
 A guy," he said,  
@@ -7896,8 +8131,8 @@ this *guy*...
 
 ... it's me."
 
+/r/AskReddit/comments/df2tyg/what_subreddits_do_you_feel_were_great_in_concept/f31687d/
 ----
-
 "I think I will do it," he said with a sigh.  
 "I'm ready and able and willing to try!  
 I think I will do it!  
@@ -7907,8 +8142,8 @@ I think I will do it!"
 
 He didn't, alas.
 
+/r/AskReddit/comments/df2tyg/what_subreddits_do_you_feel_were_great_in_concept/f30vx76/
 ----
-
 >r/lowstakeconspiracies
 
 My sister Sue is sort of sly -  
@@ -7930,8 +8165,8 @@ She clearly drafting plans somewhere.
 But as she's *six*,  
 I just don't care.
 
+/r/AskReddit/comments/df2tyg/what_subreddits_do_you_feel_were_great_in_concept/f30p15v/
 ----
-
 'Tis the symbol of a leader -  
 'Tis the color and the shade -  
 Of the full-time reddit-reader,   
@@ -7955,8 +8190,8 @@ I shall say it, short and sweetly:
 
 ... he's a reddit admin, yo.
 
+/r/AskReddit/comments/df2tyg/what_subreddits_do_you_feel_were_great_in_concept/f30n27e/
 ----
-
 >r/sharkswithwings
 
 >How could this not have taken off?
@@ -7972,8 +8207,8 @@ He chuckled politely and said:
 
 "... what a *pun.*"
 
+/r/AskReddit/comments/df2tyg/what_subreddits_do_you_feel_were_great_in_concept/f30lcim/
 ----
-
 "But how many people," he said with a sigh -  
 "Have wandered my way with desire in their eye?  
 And how many people," he spoke with delight -  
@@ -7995,16 +8230,16 @@ He said to it:
 
 "... oh."
 
+/r/AskReddit/comments/de1r4a/it_would_be_great_if_you_got_statistics_of_your/f2r8zum/
 ----
-
 "And it might have left them needing,  
 Left a pleading in their voice -  
 Left them broken, bruised and bleeding -  
 
 But they didn't have a choice."
 
+/r/AskReddit/comments/ddn9xq/around_2000_years_ago_the_chinese_were_still/f2laaoj/
 ----
-
 'twas the night before Christmas,  
 and all of the cops -  
 Had gathered their footage,  
@@ -8034,8 +8269,8 @@ it was Christmas.
 
 To all, a good night.
 
+/r/AskReddit/comments/ddllh5/andy_warhols_famously_said_in_the_future_everyone/f2kp9pe/
 ----
-
 She crossed with intrigue to the door where it lay -  
 A package, arrived by the dawn of the day.  
 A brown paper packet, addressed with her name -  
@@ -8051,8 +8286,8 @@ and she whispered:
 
 "... but *why*?"
 
+/r/AskReddit/comments/ddllh5/andy_warhols_famously_said_in_the_future_everyone/f2kmd34/
 ----
-
 When Little Timmy went to dine  
 Beside a friend or two -  
 He said: "perchance, it might be fine  
@@ -8075,8 +8310,8 @@ But Little Timmy ate a shrimp.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/ddllh5/andy_warhols_famously_said_in_the_future_everyone/f2kisu6/
 ----
-
 "I had a happy childhood, friend.  
 The summers never seemed to end.  
 My life was good,  
@@ -8099,8 +8334,8 @@ The other said:
 
 "... but *did you* though?"
 
+/r/AskReddit/comments/ddh8vm/what_is_an_unexplainable_memory_from_your/f2ilgpu/
 ----
-
 The very best of times, in truth,  
 To try your hand and turn to youth -  
 To earn yourself a babe, or two,  
@@ -8118,8 +8353,8 @@ It's not at all.
 
 ^^^ಠ_ಠ
 
+/r/AskReddit/comments/ddh8vm/what_is_an_unexplainable_memory_from_your/f2ijhmw/
 ----
-
 "Oh no," she replied with a shake of her head:  
 "I'm not going *anywhere*, darling," she said.  
 "I shall not be leaving.  
@@ -8143,16 +8378,16 @@ I love you, my darling.
 
 ... I live with your mom."
 
+/r/AskReddit/comments/dc9fyc/men_of_reddit_what_do_women_do_that_they_think_is/f277fv7/
 ----
-
 He picks the post and clicks the thread.  
 He scrolls beyond the words he's read.  
 He scans the lines and when he stops -  
 
 He cuffs himself and calls the cops.
 
+/r/AskReddit/comments/dc9fyc/men_of_reddit_what_do_women_do_that_they_think_is/f275mhe/
 ----
-
 When Little Timmy met a king  
 Who looked him up and down -  
 The royal whispered, "here's the thing:   
@@ -8169,8 +8404,8 @@ I want to see what happens *then*."
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/dbshue/if_human_experiments_were_made_legal_what_would/f24blu8/
 ----
-
 "Want a longer, stronger dick?  
 Doctors hate this *one weird trick*!  
 One weird trick to make your schlong -  
@@ -8188,8 +8423,8 @@ We've the fix and boy, it's fine!
 
 ... only nine-nine ninety-nine!"
 
+/r/AskReddit/comments/dbshue/if_human_experiments_were_made_legal_what_would/f247akv/
 ----
-
 "I am a smarty pants," said he -  
 "There's really *no one* smart as me.  
 I know precisely what to do,  
@@ -8203,8 +8438,8 @@ Until she whispered:
 
 "... good for you."
 
+/r/AskReddit/comments/dbal39/what_are_some_skills_people_think_are_difficult/f20tvnj/
 ----
-
 "Dear reddit," it started,  
 "now do you agree -  
 that water's important,  
@@ -8233,8 +8468,8 @@ To read your responses.
 
 I'm sure they'll be mixed."
 
+/r/AskReddit/comments/dadkxt/how_would_you_feel_about_this_sub_banning_all_the/f1oxmf1/
 ----
-
 I like the breeze around my knees -  
 I like the wind below -  
 I love the air that blows my hair  
@@ -8258,8 +8493,8 @@ I love to be the naked me.
 
 My roommate disagrees.
 
+/r/AskReddit/comments/daavos/you_are_gifted_1_billion_by_an_anonymous_donor/f1oqt2d/
 ----
-
 He turned the key and stopped his ride -  
 He pulled the handbrake up and sighed,  
 And with a sad,  
@@ -8278,8 +8513,8 @@ He stared and softly said: "I *see*...
 
 ... I am not where I'm meant to be."
 
+/r/AskReddit/comments/da0wc1/what_is_one_of_the_dumbest_things_youve_done_when/f1mw4tk/
 ----
-
 And near the rows of empty seats -   
 The unused plates, the untouched meats -  
 The brim-filled bowls of purple punch -  
@@ -8291,8 +8526,8 @@ The spotless cups and saucers small -
 
 *"Welcome Hermits, All!"*
 
+/r/AskReddit/comments/d9z3m0/solitude_is_dangerous_its_very_addictive_it/f1mp8sn/
 ----
-
 When the world is all excited,  
 And I think I need some space -  
 Then I leave it there delighted,  
@@ -8313,8 +8548,8 @@ When I'm on my own with me.
 
 ^^^:)
 
+/r/AskReddit/comments/d9z3m0/solitude_is_dangerous_its_very_addictive_it/f1mmw0g/
 ----
-
 He sipped his wine.  
 He frowned a bit.  
 He raised his glass,  
@@ -8326,8 +8561,8 @@ He sipped again.
 
 He said: "... it's blood."
 
+/r/AskReddit/comments/d9iw9l/jesus_christ_is_running_for_president_in_2020/f1jjw3m/
 ----
-
 When Little Timmy came to Earth,  
 His mother said with joy:  
 "I think I'd like a water birth  
@@ -8345,12 +8580,12 @@ But Little Timmy couldn't swim.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/d9iw9l/jesus_christ_is_running_for_president_in_2020/f1jg26o/
 ----
-
 [removed]
 
+/r/politics/comments/d8s0gk/megathread_reports_indicate_house_speaker_pelosi/f1cgarc/
 ----
-
 He stared at the flowers.  
 He sighed with a frown.  
 He moved to them closer,  
@@ -8362,8 +8597,8 @@ He listened intently.
 
 He whispered: "... speak up."
 
+/r/AskReddit/comments/d8m4zi/people_who_were_born_deaf_but_gained_hearing/f1c805r/
 ----
-
 Suspicious, but willing to give it a try -  
 He tapped on the back of his head with a sigh -  
 He tapped and he crossed all his fingers for luck.  
@@ -8372,8 +8607,8 @@ He waited a moment.
 
 He said: "... holy *fuck*."
 
+/r/AskReddit/comments/d8m4zi/people_who_were_born_deaf_but_gained_hearing/f1bukxn/
 ----
-
 I looked in the mirror,  
 and there I espied -  
 A car-wreck of features  
@@ -8385,8 +8620,8 @@ I stared at me sadly.
 
 I said to me: "... ew."
 
+/r/AskReddit/comments/d885b1/would_you_date_an_opposite_sex_version_of_your/f196vgo/
 ----
-
 "That lady," he whispered -  
 "That lady," he said -   
 "That *lady*," he spoke with a shake of his head -  
@@ -8394,8 +8629,8 @@ I said to me: "... ew."
 
 ... I think that she just swiped my card through her crack."
 
+/r/AskReddit/comments/d865nf/the_last_text_you_sent_is_what_you_scream_when/f18as0b/
 ----
-
 The rarest of puppers,  
 the goodest of boys -  
 The wisest of waggers,  
@@ -8405,8 +8640,8 @@ and thus it begins -
 
 He sat for our souls and played dead for our sins.
 
+/r/AskReddit/comments/d865nf/the_last_text_you_sent_is_what_you_scream_when/f189zcw/
 ----
-
 While penning lines and verses -  
 While writing rhymes at night -  
 I had to see the nurses -  
@@ -8433,8 +8668,8 @@ He's slipped into a comma.
 
 The situation's tense."
 
+/r/AskReddit/comments/d7oz18/people_who_actually_dressed_up_as_a_creepy_clown/f141qi5/
 ----
-
 When Little Timmy formed a plan  
 To make himself a clown -  
 He said: "I'll be the laughin' man  
@@ -8453,8 +8688,8 @@ But Timmy's brother pulled a gun.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/d7oz18/people_who_actually_dressed_up_as_a_creepy_clown/f13u9al/
 ----
-
 >I keep telling myself that once I've gone through this I'll be in a better place, that's what keeps me going...
 
 Keep going,  
@@ -8468,8 +8703,8 @@ You have to keep going.
 
 You're almost to you.
 
+/r/AskReddit/comments/d7mf6v/hows_life_so_far_you_need_a_reddit_hug/f13173w/
 ----
-
 >He was almost 17, a complete pain in the ass, and I miss him terribly.
 
 You're just so *annoying*.  
@@ -8486,8 +8721,8 @@ You're just so *annoying*.
 
 ... I miss you a lot.
 
+/r/AskReddit/comments/d7mf6v/hows_life_so_far_you_need_a_reddit_hug/f12yjhd/
 ----
-
 My time had come -  
 I swiftly planned,  
 And too resolved to quit -  
@@ -8495,8 +8730,8 @@ I wrote them each with each free hand!
 
 ... alas, they both were shit.
 
+/r/AskReddit/comments/d79wh1/what_is_something_that_you_could_practice_for_1/f0z57d5/
 ----
-
 "For years and for years,  
 I have worked on my shape -  
 I've made no excuses, evasions, escape.  
@@ -8513,8 +8748,8 @@ My mission is over.
 
 I'm perfectly round."
 
+/r/AskReddit/comments/d79wh1/what_is_something_that_you_could_practice_for_1/f0yznbk/
 ----
-
 >He later used this line again when he had to lay me off...
 
 "From instant to instant,  
@@ -8532,8 +8767,8 @@ They sat there in silence.
 
 "... you're fired," he said.
 
+/r/AskReddit/comments/d78fj4/what_is_the_best_piece_of_advice_that_youve/f0yr4pj/
 ----
-
 "Good morning, good morning!" the letter began -  
 "Go start an adventure as fast as you can!  
 Say *no* to denial!  
@@ -8556,8 +8791,8 @@ So try to be better!
 
 ... I'll know if you don't."
 
+/r/AskReddit/comments/d74990/youre_a_reverse_robber_you_break_into_peoples/f0xvpxy/
 ----
-
 I wonder,  
 I wonder:  
 *but do they recall?*  
@@ -8570,8 +8805,8 @@ The answer is...
 
 ... no.
 
+/r/AskReddit/comments/d5ye2u/when_youre_lying_in_bed_at_night_do_you_ever/f0pkkii/
 ----
-
 They looked at him, silent -  
 He grinned for a while -  
 They stared at him, sadly -  
@@ -8582,8 +8817,8 @@ He paused for a moment.
 
 He whispered: "... *oh no*."
 
+/r/AskReddit/comments/d5ye2u/when_youre_lying_in_bed_at_night_do_you_ever/f0pb9hr/
 ----
-
 And late he lies awake in bed,  
 A whirl of worlds inside his head  
 That slowly wane away in sleep,  
@@ -8610,8 +8845,8 @@ He thinks of *her*.
 
 He whispers: "... bitch."
 
+/r/AskReddit/comments/d5ye2u/when_youre_lying_in_bed_at_night_do_you_ever/f0p6tup/
 ----
-
 >Simply put, don't be an insensitive fuckwad.
 
 Be rude and unpleasant and soon you will find -  
@@ -8628,8 +8863,8 @@ They won't really miss you.
 
 They'll simply move on.
 
+/r/AskReddit/comments/d4o3ii/people_who_enjoy_dark_humor_if_at_all_where_do/f0fc7ah/
 ----
-
 "Dear reddit," it started,   
 "now do you agree -  
 that water's important,  
@@ -8658,8 +8893,8 @@ To read your responses.
 
 I'm sure they'll be mixed."
 
+/r/AskReddit/comments/d4kcgb/kuwait_has_a_law_that_can_make_a_parent_face_1000/f0dv9cn/
 ----
-
 "I love you."  
 
 A vomit.  
@@ -8676,8 +8911,8 @@ A barf.
 
 ... sleeps.
 
+/r/AskReddit/comments/d4en0j/married_men_of_reddit_what_was_that_dumb_thing/f0bswjp/
 ----
-
 "I love you," he started,  
 "I only love *you*.  
 And when we are parted  
@@ -8694,8 +8929,8 @@ I'm asking you:
 
 ^^^^nailed ^^^^it.
 
+/r/AskReddit/comments/d4en0j/married_men_of_reddit_what_was_that_dumb_thing/f0bp90q/
 ----
-
 "I'm sorry," he mournfully started.  
 
 "I went for a fart but I sharted."  
@@ -8706,8 +8941,8 @@ She looked at the puddle,
 
 And picked up her panties and parted.
 
+/r/AskReddit/comments/d4en0j/married_men_of_reddit_what_was_that_dumb_thing/f0bmutn/
 ----
-
 >Ode to things forgotten.
 
 The things I think I thought before -  
@@ -8725,8 +8960,8 @@ And when their size has shrunk -
 I think those thoughts inside my head   
 Are better thought... unthunk.
 
+/r/AskReddit/comments/d460rk/what_was_a_huge_trend_that_everyone_forgot_about/f089z94/
 ----
-
 "I am the finger doctor!  
 I do the finest fings!  
 The tiny limb concoctor!   
@@ -8743,8 +8978,8 @@ Come see the fist-defender!
 
 ... I like to lend a hand."
 
+/r/AskReddit/comments/d40ev3/what_is_the_most_extreme_misuse_of_an_everyday/f073gw9/
 ----
-
 He stood at the front of the class with a smile -  
 He soaked in the silence and waited a while.  
 He glanced at the notes of the speech that he'd planned -  
@@ -8765,8 +9000,8 @@ I'm *kinda*," he told them...
 
 "... a pretty big deal."
 
+/r/AskReddit/comments/d3oyty/whats_something_that_only_losers_brag_about/f04tpta/
 ----
-
 *Some* things do no good at all.  
 Nothing big and nothing small.  
 Nothing minor,  
@@ -8785,8 +9020,8 @@ Not a single good it brings.
 
 So I do not do those things.
 
+/r/AskReddit/comments/d3fumn/police_officers_of_reddit_what_are_some_laws_that/f03c8vc/
 ----
-
 His hands were soaked in crimson red.  
 His blade was long and curved.  
 
@@ -8794,8 +9029,8 @@ His blade was long and curved.
 
 "You got what you *deserved.*"
 
+/r/AskReddit/comments/d28ayo/you_are_trapped_in_your_most_hated_persons_body/ezty02t/
 ----
-
 >... flex seal his butthole and eat a bunch of laxatives.  
 
 When Little Timmy woke one day,  
@@ -8815,8 +9050,8 @@ But someone glued his butthole shut.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/d28ayo/you_are_trapped_in_your_most_hated_persons_body/eztx9jb/
 ----
-
 I think of him then,  
 who he was,  
 how he spoke -  
@@ -8829,8 +9064,8 @@ he was well...
 
 ... for a while.
 
+/r/AskReddit/comments/d1uen2/lawyers_of_reddit_whats_the_worst_way_youve_seen/ezqrzji/
 ----
-
 When things are sweet -  
 When things are swell -  
 When things are going *really* well -  
@@ -8841,8 +9076,8 @@ I do not smile.
 
 I shut my fucking mouth a while.
 
+/r/AskReddit/comments/d1uen2/lawyers_of_reddit_whats_the_worst_way_youve_seen/ezqo5ay/
 ----
-
 "It's *me*," said the person they caught on the screen -  
 "I've scars on my arm that I've had since a teen!  
 My prints and my dentals, my birthday and year -  
@@ -8865,8 +9100,8 @@ He whispered:
 
 "... but that could be *anyone* though."
 
+/r/AskReddit/comments/d1uen2/lawyers_of_reddit_whats_the_worst_way_youve_seen/ezq8kpa/
 ----
-
 There I sat, procrastinating,  
 Hope and hapless,  
 bored and waiting,  
@@ -8889,8 +9124,8 @@ Till my mother whispered, madly:
 
 "... please get out my room."
 
+/r/AskReddit/comments/d19dsh/whats_more_awkward_than_staying_at_a_friends/ezkfs9q/
 ----
-
 Leave me pained  
 and leave me prone -  
 Leave me lost  
@@ -8906,8 +9141,8 @@ and have what's mine…
 
 … just don't fucking cut in line.
 
+/r/AskReddit/comments/d17z5l/people_who_cut_in_lines_what_the_fuck_is_wrong/ezj546b/
 ----
-
 When Little Timmy went to school,  
 One wild and winsome day -  
 He thought it might be rather cool  
@@ -8925,8 +9160,8 @@ They put him in a secret place.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/d0w9yt/teachers_who_ended_up_working_at_schools_that_you/ezf5msl/
 ----
-
 When the kids I teach are *dicks* -  
 Tiny assholes,  
 total pricks -  
@@ -8948,8 +9183,8 @@ When they're *good*...
 
 ... I do it too.
 
+/r/AskReddit/comments/d0w9yt/teachers_who_ended_up_working_at_schools_that_you/ezf3ud6/
 ----
-
 "The things that I *need* to remember," he said -  
 "The thoughts that I *have* to preserve in my head -  
 The lines and the words that I *ought* to connect -  
@@ -8963,8 +9198,8 @@ And *that* is why I can remember...
 
 ... oh no."
 
+/r/AskReddit/comments/d0so47/similar_to_resting_your_eyes_after_shutting_off/ezdokmg/
 ----
-
 >"Ode to Procrastination"
 
 I could bend my will to crafting -  
@@ -8984,8 +9219,8 @@ I could start an undertaking!
 
 ... but I think I'll just stay here.
 
+/r/AskReddit/comments/d0so47/similar_to_resting_your_eyes_after_shutting_off/ezdi5yw/
 ----
-
 The future's unsettled and nobody knows -  
 Wherever we're headed or just how it goes.  
 We build for tomorrow as well as we can -  
@@ -8999,8 +9234,8 @@ I'm rarin', preparin' for sharin' and then -
 
 I'm bringin' the roar of the 'twenties again.
 
+/r/AskReddit/comments/d0jjc2/the_2010s_decade_will_be_over_in_4_months_what_do/ezao72w/
 ----
-
 Sometimes when I am playing here,  
 I shut the door and start to fear.  
 I shut the door and then I find  
@@ -9026,8 +9261,8 @@ It's not.
 
 ^^^*meow.*
 
+/r/AskReddit/comments/d0fwvx/whats_the_worst_case_youve_seen_of_someone_trying/ez9xsee/
 ----
-
 "I cannot *believe* you!" she cried with dismay -  
 "I gave you my love and you threw it away!  
 I gave you my heart and my beauty and youth -  
@@ -9039,8 +9274,8 @@ I sighed in the silence and spoke to her slow:
 
 "... or maybe, just *maybe*, it's 'cause you a ho."
 
+/r/AskReddit/comments/d0fwvx/whats_the_worst_case_youve_seen_of_someone_trying/ez9tsi6/
 ----
-
 The sad mistake I quake to make;  
 The *up* I mostly *fuck* -  
 Has often kept me wide awake,  
@@ -9058,8 +9293,8 @@ the problem's *me*.
 
 ... I gotta leave this site.
 
+/r/AskReddit/comments/d01cnb/what_have_you_fucked_up_already_today/ez5vns4/
 ----
-
 Big ones, small ones, large ones, light ones,  
 Thick ones, thin ones, left and right ones,  
 Pointed, perky, curvey, round ones,  
@@ -9076,8 +9311,8 @@ All the best of bra surprises -
 
 Boobs are great in all the sizes!
 
+/r/AskReddit/comments/czkefg/whats_your_biggest_first_world_problem/eyzowhm/
 ----
-
 She handed it in with a sigh and a smile -  
 "I worked it with pencil and shaded a while."  
 Her teacher appraised it.  
@@ -9087,16 +9322,16 @@ well it's just...
 
 ... that's a *penis*," he said.
 
+/r/AskReddit/comments/czlg3c/art_teachers_of_reddit_what_are_some_of_the/eyzmzpa/
 ----
-
 "I hate to disturb you, of course," he expressed -  
 He begged for forgiveness and stared at him stressed.  
 "I hate to disturb you," he said to him pained -  
 
 "... it's just that you won't fucking *stop*,"  he explained.
 
+/r/AskReddit/comments/czlfqr/how_does_someone_politely_end_a_conversation_with/eyzhb77/
 ----
-
 And somewhere,  
 Wyoming or Maine, Tennessee -  
 She sits on her sofa and sips at her tea.  
@@ -9118,8 +9353,8 @@ She reads what is written.
 
 "... how *dare* you?" she says.
 
+/r/AskReddit/comments/cz5ebi/your_goal_is_to_anger_an_entire_fandom_how_do_you/eywq5kn/
 ----
-
 >They looked great on paper.
 
 "I *think* you're fantastic,   
@@ -9142,8 +9377,8 @@ From shoulders to toes -
 I would like to *know you*  
 Before I propose."
 
+/r/AskReddit/comments/cyop9s/how_do_you_ruin_a_funeral_by_bringing_only_1_item/eytz5yj/
 ----
-
 "In my dreams I am," said he -  
 "Always who I want to be -  
 Always pleased with what I've made -  
@@ -9160,8 +9395,8 @@ Then," he whispered, filled with dread -
 
 "Then my dreams are *fucked*," he said.
 
+/r/AskReddit/comments/cxxxhg/what_conspiracy_theories_turned_out_to_be_true/eyp2oro/
 ----
-
 >... they didn't like you as much as they hoped they would...
 
 We used to share our souls, it seemed,  
@@ -9183,8 +9418,8 @@ I would have loved to love you, dear.
 
 Perhaps it's not to be.
 
+/r/AskReddit/comments/cxrgdq/theres_a_quote_of_philip_k_dick_that_says_there/eynd662/
 ----
-
 "There are critters in the kitchen!  
 There are *spiders,*" Noah cried -  
 "And they're gettin' busy twitchin'  
@@ -9216,8 +9451,8 @@ As I hate this heinous horde!"
 So they cooked them up and ate them,   
 Or they threw them overboard.
 
+/r/AskReddit/comments/cxpmuv/lets_assume_noahs_ark_really_happened_which/eyn8gv8/
 ----
-
 "Will you, won't you, darling, dear -  
 Come to hear my logorrhoea?  
 Come to read my periphrasis,  
@@ -9248,8 +9483,8 @@ Take a breath and shout in chorus:
 
 ^^^:)
 
+/r/AskReddit/comments/cvmg04/whats_a_short_clean_joke_that_gets_a_laugh_every/ey5dw4p/
 ----
-
 my name is Cow,  
 an dads a oct,  
 an even tho  
@@ -9261,8 +9496,8 @@ i do not mind.
 
 i gots ate feet.
 
+/r/AskReddit/comments/cvmg04/whats_a_short_clean_joke_that_gets_a_laugh_every/ey5cx16/
 ----
-
 When days were hard and nights were tough -  
 When rivers coursed their journey rough -  
 I longed to wake and wait a while  
@@ -9286,8 +9521,8 @@ and life is rough -
 
 I know I loved her well enough.
 
+/r/AskReddit/comments/cv7ina/whats_it_like_being_you/ey3bp0n/
 ----
-
 You dream of jobs and kids, a wife,  
 And luck in love, and love for life,  
 And all above,  
@@ -9317,8 +9552,8 @@ But *you*, my friend -
 
 are good enough.
 
+/r/AskReddit/comments/cv7ina/whats_it_like_being_you/ey2vumj/
 ----
-
 And in his swing,  
 he slowly swung,  
 A shining shape in seamless suit,  
@@ -9342,16 +9577,16 @@ And said:
 
 "... I can explain this though."
 
+/r/AskReddit/comments/cv613h/cops_of_reddit_what_is_the_most_what_the_fuck/ey2np62/
 ----
-
 I gave her the 'change' from the cash for the store -  
 A ten dollar bill from extensively more.  
 She stared at the note with a shake of her head.  
 
 "... enough for another banana," she said.
 
+/r/AskReddit/comments/cuvzfb/what_is_the_biggest_its_one_banana_what_can_it/ey10oqx/
 ----
-
 "I have *stories*," he said,  
 with a shake of his head,  
 And they hoped that he'd share one or two -  
@@ -9359,8 +9594,8 @@ But he never explained
 what his stories contained,  
 So they beat him to death with a shoe.
 
+/r/AskReddit/comments/cuwg2f/what_do_you_never_fuck_with/ey0wcxk/
 ----
-
 When Little Timmy thought to play  
 With *electricity* -  
 He watched it move and stir and sway,  
@@ -9378,8 +9613,8 @@ And Timmy licked the open wire.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/cuwg2f/what_do_you_never_fuck_with/ey0ksdh/
 ----
-
 >Ducks are vile.
 
 He stared at the duck as it moved on the pond -  
@@ -9390,8 +9625,8 @@ He waited in silence.
 
 "... you *rapist*," he said.
 
+/r/AskReddit/comments/cusqpx/what_is_the_most_useless_fact_you_know/exz95pk/
 ----
-
 In life, you won't be always right.  
 You'll lie awake at times at night  
 And think about the how, the way  
@@ -9414,8 +9649,8 @@ But folks *fuck up*.
 
 That's what we do.
 
+/r/AskReddit/comments/cudzb2/what_was_your_i_need_to_grow_up_moment_that/exu699i/
 ----
-
 "But this is my *moment*," he thought with a sigh -  
 "A chance, and a second endeavour to try!  
 I don't have to choose all the paths that I chose!  
@@ -9434,8 +9669,8 @@ He whispered:
 
 "... or maybe I'll do it again."
 
+/r/AskReddit/comments/cuctl4/what_if_you_suddenly_feel_a_touch_on_the_shoulder/extm3vv/
 ----
-
 "Oh buddy," he spoke, with a shake of his head,  
 "It's totally, endlessly *broken*," he said.  
 "Your world's a disaster,  
@@ -9464,8 +9699,8 @@ I give it F minus.
 
 Would not recommend."
 
+/r/AskReddit/comments/ctzmtj/what_if_after_you_die_god_ask_you_so_how_was/exr7rbg/
 ----
-
 >Ode to the IT Guy.
 
 I won't have the answer *always*,  
@@ -9486,8 +9721,8 @@ And I'll cobble you an answer
 From whatever  
 I can find.
 
+/r/AskReddit/comments/ctxfzk/what_is_something_you_know_because_of_your/expwhtr/
 ----
-
 He spoke, content, and sipped his drink,  
 And said, "you know, I really think  
 The more I sink,  
@@ -9500,8 +9735,8 @@ And finished, "*well*...
 
 ... it's worth a shot."
 
+/r/AskReddit/comments/ctvz5p/whats_your_favourite_a_man_walks_into_a_bar_joke/expev5c/
 ----
-
 When Little Timmy took the bet  
 One fair and fateful day -  
 He thought with joy of shrinking debt,  
@@ -9525,8 +9760,8 @@ And Timmy pulled his zipper down.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/ctvz5p/whats_your_favourite_a_man_walks_into_a_bar_joke/exp9kkp/
 ----
-
 The teacher hung her head in shame -  
 It wasn't *really* Jim to blame,  
 But since he'd given way to whim,  
@@ -9543,8 +9778,8 @@ She turned to Jim to speak and then -
 
 "BANANA!" Jimmy spoke again.
 
+/r/AskReddit/comments/ctkecb/what_did_you_think_you_were_really_good_at_until/exmc7ex/
 ----
-
 my name is Ot,  
 an wen i play,  
 or pluk the cord  
@@ -9556,8 +9791,8 @@ i strum the string.
 
 i play the toon.
 
+/r/AskReddit/comments/ctkecb/what_did_you_think_you_were_really_good_at_until/exm9t9s/
 ----
-
 >"The Librarian"
 
 Have you ever heard the churning  
@@ -9581,16 +9816,16 @@ Warning, would-be-perpetrator -
 
 *Well beware the page-curator.*
 
+/r/AskReddit/comments/cpqpk2/you_find_yourself_in_a_library_containing_answers/ewrmrb8/
 ----
-
 When Simple Sally went to school,  
 She sadly said,  
 "it isn't cool,"  
 And sighed aloud and wondered *why*  
 Her teachers couldn't fucking fly.
 
+/r/AskReddit/comments/cpkm5g/a_magical_pet_store_is_open_but_the_good_pets_are/ewqmj8t/
 ----
-
 "*Oh why'd I buy this vexing bird?*  
 *'A discount parrot, save a third!'*  
 *I should have known it seemed amiss,*  
@@ -9609,8 +9844,8 @@ Her teachers couldn't fucking fly.
 *That talking parrot's out of luck.*  
 *I think I'll cook him up and*... fuck."
 
+/r/AskReddit/comments/cpkm5g/a_magical_pet_store_is_open_but_the_good_pets_are/ewqlg0b/
 ----
-
 >My husky plays mind games with me...
 
 And in the dark,  
@@ -9622,8 +9857,8 @@ He waits ahead.
 
 He whispers: "... bitch."
 
+/r/AskReddit/comments/cpepfv/pet_owners_of_reddit_what_is_the_biggest_flex/ewpnrgo/
 ----
-
 When he woke in the morn  
 and he looked up above,  
 He was pleased and surprised  
@@ -9642,16 +9877,16 @@ and his strength was the cost,
 But the world, it would *pay*  
 for the mullet he lost.
 
+/r/AskReddit/comments/cp9fbp/if_written_like_a_news_report_what_stories_from/ewoe9wz/
 ----
-
 "Well her service is hip,  
 And the dining's divine!"  
 So he gave her a tip,  
 But alas,  
 it was a mine.
 
+/r/AskReddit/comments/cp9fbp/if_written_like_a_news_report_what_stories_from/ewocry8/
 ----
-
 There lived a man inside a whale.  
 He made his bed within the tail.  
 He crouched around the shiny fins,  
@@ -9669,8 +9904,8 @@ One day he simply said:
 
 "... this blows."
 
+/r/AskReddit/comments/cp9fbp/if_written_like_a_news_report_what_stories_from/ewoc6om/
 ----
-
 >"The Angry Meal"
 
 "Does it come with a toy?"  
@@ -9703,8 +9938,8 @@ and well...
 
 'twas a punch to the dick[.](https://imgur.com/r/highqualitygifs/i9Z4egW)
 
+/r/AskReddit/comments/cp10b0/mcdonalds_discontinues_the_happy_meal_and/ewmv4lz/
 ----
-
 >"Ode to a Penny"
 
 Tiny tarnished metal penny,  
@@ -9732,8 +9967,8 @@ Were you always waiting here?
 Have you been to places many?  
 Have you travelled far and near?
 
+/r/AskReddit/comments/covu9i/do_you_ever_look_at_the_date_on_a_coin_and_wonder/ewlouso/
 ----
-
 You're funny. You're nervous.  
 You're happy. You're scared.  
 You're worried. You're hopeful.  
@@ -9753,8 +9988,8 @@ to make it afar?
 It's all from inside you,  
 so *that's* who you are.
 
+/r/AskReddit/comments/cn23di/what_part_of_your_personality_do_you_fake/ew6itqd/
 ----
-
 But only silence answered back,  
 And in the deep,  
 the dark,  
@@ -9769,8 +10004,8 @@ That whispered softly...
 
 *who am I?*
 
+/r/AskReddit/comments/cn23di/what_part_of_your_personality_do_you_fake/ew6hwmp/
 ----
-
 "I went outside.   
 I saw a cat.  
 I saw a man who wore a hat.  
@@ -9793,16 +10028,16 @@ I went outside for what I lack.
 
 I don't think I'll be going back."
 
+/r/AskReddit/comments/cn23di/what_part_of_your_personality_do_you_fake/ew6gtzc/
 ----
-
 He sits and he silently stares at the screen.  
 The words that he's asked her to write in between.  
 He might be a robot,  
 but there on his own -  
 He dreams for a while that he isn't alone.
 
+/r/AskReddit/comments/cmvwqs/phone_sex_workers_of_reddit_whats_the_strangest/ew5jf8v/
 ----
-
 >I have an elderly man who calls me to talk about his obsession with vintage girdles and bras.
 
 "... and *now*, of course, the bras are small,  
@@ -9833,8 +10068,8 @@ And cleared his throat:
 
 "Now *girdles* though..."
 
+/r/AskReddit/comments/cmvwqs/phone_sex_workers_of_reddit_whats_the_strangest/ew5im05/
 ----
-
 "You scumbag. You bastard. You cretin. You creep.  
 I hope against hope that you choke in your sleep.    
 I hope you're a failure in all that you do.  
@@ -9855,8 +10090,8 @@ He whispered, excited:
 
 "... she knows who I am!"
 
+/r/AskReddit/comments/cmvwqs/phone_sex_workers_of_reddit_whats_the_strangest/ew5g3je/
 ----
-
 "You need me to laugh but that just isn't me -  
 I'm sorry I'm not who you want me to be!  
 I'm *leaving!*" he said and he ran away, sad.  
@@ -9865,8 +10100,8 @@ In silence, he whispered:
 
 "Hi leaving... I'm dad."
 
+/r/AskReddit/comments/cmq7hj/what_is_your_favorite_dad_joke/ew4q0pu/
 ----
-
 >... otherwise I'll be in bed all day.
 
 "I say," said he,  
@@ -9886,8 +10121,8 @@ The time is *now*...
 
 ... but not today."
 
+/r/AskReddit/comments/cmoxrl/exlazy_people_of_reddit_how_did_you_overcome_your/ew4fsj0/
 ----
-
 When days are hard and nights are long -  
 When every single right's a wrong -  
 When all I want's an empty bed -  
@@ -9906,8 +10141,8 @@ It's something else when times are tough.
 
 And sometimes maybe that's enough.
 
+/r/AskReddit/comments/cmoxrl/exlazy_people_of_reddit_how_did_you_overcome_your/ew4dzr0/
 ----
-
 "And when I am sleeping,   
 I see them," he said -  
 "Parading and weeping  
@@ -9933,8 +10168,8 @@ They *never* forget."
 
 ^^^:(
 
+/r/AskReddit/comments/cmdzww/what_is_a_true_fact_so_baffling_it_should_be_false/ew244bg/
 ----
-
 When Little Timmy went to sea  
 Upon a sailing boat -  
 "How nice," he said, "it is to be,  
@@ -9952,15 +10187,15 @@ Alas, 'twas *navy* seals instead.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/cmcyhl/vr_now_allows_you_to_sell_your_experiences_to/ew20lyx/
 ----
-
 He's a liar on a mission,  
 A pernicious little shit -  
 But we call him *politician*,  
 'cause the name's a better fit.
 
+/r/AskReddit/comments/cm7dp1/parents_of_reddit_what_are_your_kids_currently/ew10nm9/
 ----
-
 There are stories in the silence  
 Of a trip to shining stars -  
 Of a journey through the darkness  
@@ -9988,8 +10223,8 @@ And a promise made to keep -
 There are stories in the silence  
 As you drift away to sleep.
 
+/r/AskReddit/comments/cm7dp1/parents_of_reddit_what_are_your_kids_currently/ew0t5ry/
 ----
-
 She watched her mother make her way  
 To where her snacks in secret lay,  
 And though she knew she'd hid them well,  
@@ -10002,8 +10237,8 @@ Her daughter whispered:
 
 "... what the *fuck*?"
 
+/r/AskReddit/comments/cm7dp1/parents_of_reddit_what_are_your_kids_currently/ew0sgwr/
 ----
-
 "I surrender," he said,  
 With a shake of his head,  
 "But your grace, will you pity your foe?"    
@@ -10013,8 +10248,8 @@ And he said with benevolence:
 
 "... no."
 
+/r/AskReddit/comments/clwnoc/historians_of_reddit_what_is_the_biggest_fuck_you/evyw0qi/
 ----
-
 He picks the post and clicks the thread.  
 He scrolls to read the words it said.  
 He grins with glee and giggles, glad.  
@@ -10027,8 +10262,8 @@ He whispers:
 
 "... dad?"
 
+/r/AskReddit/comments/clwnoc/historians_of_reddit_what_is_the_biggest_fuck_you/evyrq32/
 ----
-
 The Gauls inside the castle said:  
 "We only need to wait -  
 For extra troops are just ahead  
@@ -10051,8 +10286,8 @@ And whispered:
 
 "... bring it on."
 
+/r/AskReddit/comments/clwnoc/historians_of_reddit_what_is_the_biggest_fuck_you/evyn91v/
 ----
-
 "Oh yay, okay, hooray!" said he -  
 "What hope, what joy, what fun, what glee!  
 The finest sip on which to sup!  
@@ -10064,8 +10299,8 @@ The thing I *love*!"
 
 ^^^:(
 
+/r/AskReddit/comments/clkjhp/if_you_got_offered_1000000_usd_but_every_time_you/evwnf3q/
 ----
-
 When Little Timmy planned ahead,  
 He grinned to think it through -  
 He smiled and softly sighed and said:  
@@ -10087,8 +10322,8 @@ And Timmy fucking died.
 
 ^^^achoo!
 
+/r/AskReddit/comments/clkjhp/if_you_got_offered_1000000_usd_but_every_time_you/evwh7e0/
 ----
-
 It makes me sad -  
 It makes me sick -  
 It makes me vexed to view -  
@@ -10108,8 +10343,8 @@ And think on who that lady is:
 A *murderer*,  
 that's who.
 
+/r/AskReddit/comments/clgu1g/finding_nemo_is_about_a_guy_whos_wife_gets/evvkeyu/
 ----
-
 "What's that sound?" he softly said -  
 Stepped the stairs and stared ahead -  
 Walked the hall in vain to see -  
@@ -10126,8 +10361,8 @@ Where below he stared at *that.*
 
 Gave his sister back her cat.
 
+/r/AskReddit/comments/clfwby/men_of_reddit_if_males_could_unscrew_their_dick/evvh6n6/
 ----
-
 He stopped to see the sights ahead,  
 The shore, the sand below -  
 And sighed and breathed the air and said:  
@@ -10142,8 +10377,8 @@ And took the perfect pic.
 
 ^^^:)
 
+/r/AskReddit/comments/clfwby/men_of_reddit_if_males_could_unscrew_their_dick/evvgrrw/
 ----
-
 He clicked the post and then with glee,  
 He laughed and clapped and smiled to see  
 The bright, delightful words it said.
@@ -10152,8 +10387,8 @@ He read the next.
 
 ... he closed the thread.
 
+/r/AskReddit/comments/cl7sij/redditors_who_have_a_job_where_they_go_into_other/evtx991/
 ----
-
 When Little Timmy grinned with joy  
 To spy the beams above -  
 "Oh what delight!" exclaimed the boy,  
@@ -10176,8 +10411,8 @@ But melanoma *fucks you up*.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/cl69re/what_would_people_take_more_seriously_if_it_had_a/evtm2z4/
 ----
-
 They tell me she's sprightful, delightful, and sweet;  
 A pleasure to treasure from fingers to feet -  
 The fondest and fairest to savor and see;  
@@ -10198,8 +10433,8 @@ They call her *seductress*...
 
 ... and I call her mom.
 
+/r/AskReddit/comments/cl3yua/what_is_the_worst_thing_to_say_after_a_first_kiss/evth4ue/
 ----
-
 She comes up close and looks my way.  
 There's nothing much we need to say.  
 There's nothing much we need to do.  
@@ -10218,8 +10453,8 @@ She wags her tail.
 
 It must be love.
 
+/r/AskReddit/comments/ckonhz/couples_who_have_moved_in_together_what_surprised/evpt9sx/
 ----
-
 ... and still, in the calm of an evening in bed  
 That singular moment replays in my head -  
 I think of the feeling I felt as a boy -  
@@ -10243,8 +10478,8 @@ I still see it yet.
 
 That night in the bathroom I'll never forget.
 
+/r/AskReddit/comments/ckmwrg/what_is_your_guess_i_cant_go_into_that_store_ever/evp4o12/
 ----
-
 "I clearly and really don't love you," he thought -  
 "Not even a *quarter* as much as I ought.  
 I know I should tell you -  
@@ -10257,8 +10492,8 @@ They're painful, disdainful and dreadful," he said -
 
 "... so let's stay together forever instead."
 
+/r/AskReddit/comments/cjwcnk/whats_the_worst_way_to_break_up_with_someone/evhl4g6/
 ----
-
 "I'll say with pride:  
 I've always found  
 There's not a girl the world around  
@@ -10285,8 +10520,8 @@ It's not a *job*...
 
 ... but state of mind."
 
+/r/AskReddit/comments/cje9kz/taxi_drivers_of_reddit_have_anyone_actualy_jumped/evdgu9w/
 ----
-
 "But will you feel *better*?" he said with a sigh -  
 "To know what he's doing?  
 To see with your eye?  
@@ -10303,8 +10538,8 @@ She whispered:
 
 "... I'll cut off his *dick.*"
 
+/r/AskReddit/comments/cje9kz/taxi_drivers_of_reddit_have_anyone_actualy_jumped/evd9mj1/
 ----
-
 >But damn it that's my story.
 
 "Perhaps it just isn't as wild as they come -  
@@ -10314,8 +10549,8 @@ But *dammit*," he whispered with passion:
 
 "... it's mine."
 
+/r/AskReddit/comments/cje9kz/taxi_drivers_of_reddit_have_anyone_actualy_jumped/evd5gh7/
 ----
-
 And on the wall,  
 where hangs above,  
 The staple sign of "Live Laugh Love",  
@@ -10324,8 +10559,8 @@ the best he had,
 Is simply: "Twat",  
 from *This Guy's Dad.*
 
+/r/AskReddit/comments/ciwolg/whats_your_best_childhood_memory_why/evaefpl/
 ----
-
 Remember when the sun was bright,  
 And shone upon the shore?  
 And every dawn was deep and right,  
@@ -10349,8 +10584,8 @@ and only this:
 
 they end.
 
+/r/AskReddit/comments/ciwolg/whats_your_best_childhood_memory_why/eva6bcz/
 ----
-
 When Little Timmy stared ahead,  
 It wasn't long before -  
 His mother turned to Tim and said,  
@@ -10385,8 +10620,8 @@ That mother turned with pride -
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/citn7f/what_is_the_longest_5_minutes_you_have_ever/ev9h71g/
 ----
-
 When times are hard,  
 it's hard to hope,  
 And though you've worked with care to cope,  
@@ -10394,8 +10629,8 @@ I know you know,
 but all the same -  
 It's plain to see you're not to blame.
 
+/r/AskReddit/comments/cihunq/what_is_the_scariest_thing_youve_ever_seen_while/ev6nq8v/
 ----
-
 'Twas lettuce, tomatoes and peppers and bean -  
 'Twas onion and olive and spinach  between -  
 'Twas rocket and radish and carrot and cress -  
@@ -10415,8 +10650,8 @@ And when he was finished...
 
 ... he went back for more.
 
+/r/AskReddit/comments/chq96p/all_you_can_eat_buffet_workers_what_are_your/euxxzfj/
 ----
-
 Though mainly and mostly together in mind -  
 With hope for ahead and at peace with behind -  
 In essence and earnest, I have to confide:  
@@ -10435,8 +10670,8 @@ Then changing is easy.
 
 I'm not finished yet.
 
+/r/AskReddit/comments/chm4um/have_you_ever_felt_you_dont_knowhave_forgotten/euwa29f/
 ----
-
 >Don't stare at a map all day and forget to look up at what it really is.
 
 I had planned my life's endeavour -  
@@ -10447,8 +10682,8 @@ but not forever.
 
 I am where I'm meant to be.
 
+/r/AskReddit/comments/chm4um/have_you_ever_felt_you_dont_knowhave_forgotten/euvsuj3/
 ----
-
 >Why aren't I getting over this cold? Maybe it's more than a cold and it's such a serious infection my body is too stressed to ovulate...
 
 "You're feeling ill,  
@@ -10472,8 +10707,8 @@ The symptoms lessen quite a bit."
 
 ... B.A. B.Y."
 
+/r/AskReddit/comments/chi01o/doctors_and_nurses_of_reddit_who_have_delivered/euu5go3/
 ----
-
 >"The Hedge Fun Manager"
 
 When I'm feeling bored and lonely -  
@@ -10491,8 +10726,8 @@ Then I take the chance to go -
 Take a leap, and with precision,  
 Jump in fucking hedges, yo.
 
+/r/AskReddit/comments/chaof4/what_is_the_strangest_thing_youve_witnessed/eus7511/
 ----
-
 >What unresolved childhood trauma will emerge through maladaptive behaviors as we spend more time together?
 
 She pondered politely.  
@@ -10506,8 +10741,8 @@ She answered.
 
 "... well *all* of them, darling," she said.
 
+/r/AskReddit/comments/chaf53/what_are_some_good_first_date_questions_to_get_to/eurq2hd/
 ----
-
 *The Destruction of Earth*, by A. Vogon.
 
 >*Oh plurdle and gurpling jurtles of Earth!*  
@@ -10530,8 +10765,8 @@ and much to my mirth -*
 
 >*night.*
 
+/r/AskReddit/comments/cglck8/if_you_had_the_entire_worlds_attention_for_30/euj3k55/
 ----
-
 When Little Timmy found a way  
 To give the world a call -  
 He knew *precisely* what to say,  
@@ -10548,16 +10783,16 @@ But Little Timmy fucked it up.
 
 And everybody died.
 
+/r/AskReddit/comments/cglck8/if_you_had_the_entire_worlds_attention_for_30/euj08jt/
 ----
-
 Journey's hard and journey's long.  
 Sometimes journey turns out wrong.  
 Sometimes makes you half-forget:  
 
 Journey isn't over yet.
 
+/r/AskReddit/comments/cgcn3n/whats_the_one_thing_that_you_thought_was_easy_but/eugupys/
 ----
-
 I sat in shame to see it done.  
 I'd had my fill, and had my fun.  
 I gave a single, weary sigh  
@@ -10575,8 +10810,8 @@ I vowed and then -
 
 I clicked refresh and searched again.
 
+/r/AskReddit/comments/cgcn3n/whats_the_one_thing_that_you_thought_was_easy_but/eugl5c0/
 ----
-
 "I've waited," he started -  
 "I've waited with cheer -  
 I've waited and now that it's finally here -  
@@ -10591,8 +10826,8 @@ But now that it's *over*..."
 
 He picked up the gun.
 
+/r/AskReddit/comments/cg95s3/what_are_good_reasons_to_live/eufyn8n/
 ----
-
 When you're full of doubt and fear -  
 I'll be with you,  
 waiting here.  
@@ -10612,8 +10847,8 @@ I won't like it on my own.
 
 Please don't leave me here alone.
 
+/r/AskReddit/comments/cg95s3/what_are_good_reasons_to_live/eufqjvb/
 ----
-
 >I don't have reasons to live. I only have reasons not to die.  
 
 In essence,  
@@ -10626,8 +10861,8 @@ I guess that'll do.
 
 For maybe in time I shall find one or two.
 
+/r/AskReddit/comments/cg95s3/what_are_good_reasons_to_live/eufq964/
 ----
-
 Some people are little.  
 Some people are big.  
 As wide as a red wood.  
@@ -10659,8 +10894,8 @@ But *everyone's* people.
 
 That's just how we are.
 
+/r/AskReddit/comments/cfxtgn/teachers_of_reddit_what_are_some_positive_trends/eudd77d/
 ----
-
 In the ears of dragons are -  
 
 Things up close and things afar -  
@@ -10681,8 +10916,8 @@ and things bizarre -
 
 In the ears of dragons are.
 
+/r/AskReddit/comments/cfkpto/what_are_some_not_fun_facts/eub9zdd/
 ----
-
 "I must think of *nothing,*" he whispered distressed -  
 "I must think of *nothing* for *nothing* is best.  
 I'll leave all these thoughts and this thinking behind -  
@@ -10699,8 +10934,8 @@ I must think of *nothing*," he said with delight.
 
 ... and that took him hours and hours each night.
 
+/r/AskReddit/comments/cfk1z7/people_who_can_fall_asleep_within_5_minutes_of/euamka1/
 ----
-
 "There's really no one quite as wise,  
 Or half as smart as me -  
 I'm versed in sharp and shrewd surprise,  
@@ -10723,8 +10958,8 @@ It's how they know I'm cool.
 But mostly people think that I'm  
 A *massive* fucking tool."
 
+/r/AskReddit/comments/cefxj1/whats_something_that_you_like_but_hate_the_fan/eu2rf6z/
 ----
-
 Down his forearms, there it goes -  
 Freely runs and flits and flows -  
 Passed the freckles,  
@@ -10743,8 +10978,8 @@ leaves him damp as well.
 
 Whispers softly: "... fucking *hell.*"
 
+/r/AskReddit/comments/cduruo/whats_a_mild_inconvenience_that_drives_you/etx77p8/
 ----
-
 Right they ramble, left they wander,  
 Walk, meander, stop and ponder,  
 Shuffle softly, amble aimless,  
@@ -10764,8 +10999,8 @@ Slowing -
 
 *Everywhere* the fuck I'm going.
 
+/r/AskReddit/comments/cduruo/whats_a_mild_inconvenience_that_drives_you/etwygs0/
 ----
-
 >To me we are still together, he's just...uh...living impaired...
 
 He's out,  
@@ -10790,8 +11025,8 @@ It's not like he's *gone*.
 
 He just... isn't here.
 
+/r/AskReddit/comments/cd1ru7/what_fictional_character_could_someone_say_oh/etrb6ol/
 ----
-
 ... she narrowed her eyes with the weariest sigh.  
 How soon had her noon but meandered awry.  
 Her morning had started with charm and success...  
@@ -10825,8 +11060,8 @@ They shouted and whistled.
 
 She beat them to death.
 
+/r/AskReddit/comments/ccocay/do_you_think_that_women_should_be_free_to_walk/etoqd6r/
 ----
-
 "I will not show a single tit.  
 I will not show a tiny bit.  
 I will not flash a peek of chest,  
@@ -10848,8 +11083,8 @@ The fact remains the same, to wit:
 
 I will not show a single tit."
 
+/r/AskReddit/comments/ccocay/do_you_think_that_women_should_be_free_to_walk/etok1qu/
 ----
-
 "So throw off the chains of oppression!" said he -  
 "Be fairly unfettered,  
 and free to be free!  
@@ -10864,8 +11099,8 @@ He waited.
 
 "... I don't really want to," she said.
 
+/r/AskReddit/comments/ccocay/do_you_think_that_women_should_be_free_to_walk/etohalt/
 ----
-
 When Little Timmy saw it there,  
 And spied its eerie glow -  
 A rusted sign was waiting where  
@@ -10888,8 +11123,8 @@ But Timmy didn't read the sign.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/cc4fpa/what_horror_movie_do_you_think_youd_easily/etktntv/
 ----
-
 They called me to tell me they wanted me in -  
 A stable position;  
 a date to begin.  
@@ -10897,8 +11132,8 @@ a date to begin.
 
 And that was the reason I had to decline.
 
+/r/AskReddit/comments/ca71u4/what_would_you_do_if_you_find_out_a_person_that/et75plv/
 ----
-
 Pens and pencils,  
 keys and glasses -  
 Balls and bulbs and boarding passes -  
@@ -10918,8 +11153,8 @@ Rubik cubes and plastic troopers -
 
 Don't belong inside your poopers.
 
+/r/AskReddit/comments/ca3ije/doctors_of_reddit_what_is_something_that_you_wish/et5vmfy/
 ----
-
 "I *love* that you love me and want me to win -  
 But bogus balloons should be popped with a pin.  
 It's honestly nothing -  
@@ -10935,8 +11170,8 @@ He whispered:
 
 "... you're right."
 
+/r/AskReddit/comments/c9suu6/what_are_some_huge_green_flags_that_are_often/et3dhpm/
 ----
-
 I am the Masturbator.  
 I want and wait for none.  
 They tell me: *"Do it later -*  
@@ -10958,8 +11193,8 @@ There's surely no one greater.
 
 For I have mastured it.
 
+/r/AskReddit/comments/c9tcc6/what_skills_could_you_offer_in_an_apocalypse/et3baol/
 ----
-
 >... does not make an excuse for failing, but tries to better themselves through that experience.
 
 "Come see my collection of heartaches!" he cried:  
@@ -10982,8 +11217,8 @@ He laughed with delight and a shake of his head:
 
 ^^^:)
 
+/r/AskReddit/comments/c9suu6/what_are_some_huge_green_flags_that_are_often/et387dl/
 ----
-
 I think you're an asshole.  
 I honestly do.  
 There's no one who's more of an asshole than you.  
@@ -10992,8 +11227,8 @@ I think you're an asshole.
 
 But then... so am I.
 
+/r/AskReddit/comments/c7agc2/people_who_have_met_their_online_friends_what/esef42y/
 ----
-
 > I've never loved a friend like I loved him.
 
 I think of you often -  
@@ -11009,8 +11244,8 @@ I loved you.
 
 I hate that it came to an end.
 
+/r/AskReddit/comments/c7agc2/people_who_have_met_their_online_friends_what/esee752/
 ----
-
 "I love you as much as a... *thingy,*" he said -  
 "... a *something*," he wrote with a shake of his head -  
 "... a *waddyacallit*," he whispered and then -  
@@ -11037,8 +11272,8 @@ But *here's* what's important," he finished below -
 
 I want you to know."
 
+/r/AskReddit/comments/c71jzt/parents_or_reddit_what_do_your_kids_think_theyre/esd408k/
 ----
-
 >I hope you can find the support you need to make a change.
 
 I can't help you much from my spot over here -  
@@ -11047,8 +11282,8 @@ But still, in the place of a worthier plan -
 
 I hope, and I hope that you've someone who can.
 
+/r/AskReddit/comments/c71051/when_is_quantity_better_than_quality/esd10sp/
 ----
-
 When Little Timmy pressed his horn,  
 He sighed aloud and said:  
 "How nice it must be every morn  
@@ -11065,8 +11300,8 @@ Alas, his neighbors disagreed.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/c6jobg/you_are_now_the_manager_of_purgatory_its_a_mix/es9mdy6/
 ----
-
 He presses the horn at the dawn of each day.  
 I hear it and fear it with dread and dismay.   
 I listen with anger and wonder: "... but *why*?"  
@@ -11075,8 +11310,8 @@ One day I will kill him.
 
 One day he will die.
 
+/r/AskReddit/comments/c6jobg/you_are_now_the_manager_of_purgatory_its_a_mix/es9joja/
 ----
-
 Steve's delightful.  
 Steve's divine.  
 Steve's a darling, fair and fine.  
@@ -11094,8 +11329,8 @@ Steve's a...
 
 ... Steve's a little *damp*.
 
+/r/AskReddit/comments/c6jobg/you_are_now_the_manager_of_purgatory_its_a_mix/es9gmjb/
 ----
-
 "It's rather delightfully pleasant," said he -  
 "But maybe a little too chilly for me.  
 A layer should do it," he stated and so -  
@@ -11105,8 +11340,8 @@ He whispered:
 
 "... oh no."
 
+/r/AskReddit/comments/c6jobg/you_are_now_the_manager_of_purgatory_its_a_mix/es9fwmp/
 ----
-
 Granny tried to leave today -  
 Popped the lock and ran away -  
 Saw the chance and made a break -  
@@ -11115,8 +11350,8 @@ Silly Granny.
 
 *Big mistake.*
 
+/r/AskReddit/comments/c5hyh4/what_is_currently_happening_that_is_scaring_you/es2kfqm/
 ----
-
 Granny hugs me every day -  
 Thinks of hopeful things to say -  
 Gives me comfort,  
@@ -11124,8 +11359,8 @@ soothes my doubt -
 
 One day I will let her out.
 
+/r/AskReddit/comments/c5hyh4/what_is_currently_happening_that_is_scaring_you/es2jiyo/
 ----
-
 And so I clicked, expecting smut -  
 A sharpie in a lady's butt -  
 A hundred shots of horny teens -  
@@ -11142,8 +11377,8 @@ And perfect posts and threads divine.
 
 ... I hope he never clicks on mine.
 
+/r/AskReddit/comments/c4xbbn/people_who_have_found_their_friends_secret_reddit/erzkzcf/
 ----
-
 "You're disturbed and defiled and depraved and debased?  
 You're obscene and corrupt and debauched and disgraced?  
 You're perverse and profane and you freely confess?"  
@@ -11152,8 +11387,8 @@ And with pride, he replied with a confident:
 
 "... yes."
 
+/r/AskReddit/comments/c4xbbn/people_who_have_found_their_friends_secret_reddit/erzjnhf/
 ----
-
 Microsoft is mostly mine.  
 Also Google,  
 Valve and Prime.  
@@ -11170,8 +11405,8 @@ All together...
 
 press delete.
 
+/r/AskReddit/comments/c3q7ud/you_have_one_hour_to_do_anything_but_afterward/ert0inf/
 ----
-
 When Little Timmy pranked his bro  
 By making heinous shake -  
 It didn't take him long to know  
@@ -11188,8 +11423,8 @@ But Timmy's brother grabbed a fruit.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/c3q0f5/whats_your_worst_birthday_memory/erswn7b/
 ----
-
 "But I *know you*," she said,  
 With a shake of her head,  
 "You're the guy with the dick like a bean!"  
@@ -11201,8 +11436,8 @@ And delight to be known for my peen.
 
 ^^^:)
 
+/r/AskReddit/comments/c3q7ud/you_have_one_hour_to_do_anything_but_afterward/ersvbuk/
 ----
-
 Every thought inside him screams:  
 "Step outside and live your dreams!  
 Take a wish and make it true!  
@@ -11219,8 +11454,8 @@ Take the break and make it so!
 
 ... maybe start tomorrow though."
 
+/r/AskReddit/comments/c3q7ud/you_have_one_hour_to_do_anything_but_afterward/ersu0zi/
 ----
-
 Be nasty.  
 Be naughty.  
 Be beastly.  
@@ -11232,8 +11467,8 @@ But baby, be *flashy.*
 
 Take pride in your work.
 
+/r/AskReddit/comments/c3p2s1/which_villain_do_you_feel_sympathy_for/erstvio/
 ----
-
 "But mom," he whispered, "can't you see,  
 You never seem to notice *me?*  
 I try my best each night and day,  
@@ -11253,8 +11488,8 @@ She sighed and said:
 
 "... I do not care."
 
+/r/AskReddit/comments/c2hgeg/who_is_the_most_overrated_person_in_history/erl1dxo/
 ----
-
 When Little Tuten ruled a land  
 A long, long time ago -  
 He slowly walked with cane in hand,  
@@ -11277,8 +11512,8 @@ But Tuten broke his leg, alas.
 
 And Tuten fucking died.
 
+/r/AskReddit/comments/c2hgeg/who_is_the_most_overrated_person_in_history/erkg4yw/
 ----
-
 When Little Timmy jogged the park,  
 He said, one summer's night -  
 "How nice it is to run the dark,  
@@ -11296,8 +11531,8 @@ He didn't see the cult, alas.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/c1bhpc/what_is_the_creepiest_thing_youve_seen_in_the/ercfcbq/
 ----
-
 'Twas late in the fifties, enacting a plan,  
 When troubles were started, and problems began.  
 The Communist Party of China would say:  
@@ -11319,8 +11554,8 @@ We'll build a new China!' he said with a sigh.
 
 "... of course though, a *shit-load* of people will die."
 
+/r/AskReddit/comments/c0vcpt/which_is_the_worst_single_decision_in_history/er8n96x/
 ----
-
 A dickie; a dingus; a donger; a dork -  
 A Peter; a Percy; a piston or pork -  
 A snake and a schlong and a schnitzel and sub -  
@@ -11342,8 +11577,8 @@ to which I won't wank!
 
 ^^^:)
 
+/r/AskReddit/comments/bzb3f1/redditors_who_clean_up_crime_scenes_whats_the/eqrskvm/
 ----
-
 No one's quite as strong as Stanley.  
 Stanley's been to war.  
 Stanley's mighty macho manly,  
@@ -11361,8 +11596,8 @@ Stanley says his life's exciting.
 
 Stanley's full of shit.
 
+/r/AskReddit/comments/byzb78/whats_the_bitchiest_most_pretentiousentitled/eqpcv7v/
 ----
-
 I won't apologise for me.  
 I'm only who I'm meant to be.  
 I speak the truth,  
@@ -11383,8 +11618,8 @@ Because, you see -
 
 I am a cunt.
 
+/r/AskReddit/comments/byzb78/whats_the_bitchiest_most_pretentiousentitled/eqoui2k/
 ----
-
 His leg was in pieces.  
 His head was a wreck.  
 His fingers were broken and so was his neck.  
@@ -11409,8 +11644,8 @@ He checked his insurance.
 
 "... no thank you," he said.
 
+/r/AskReddit/comments/bykb3v/non_americans_of_reddit_what_is_the_craziest/eqjfy5r/
 ----
-
 When Little Timmy went to school,  
 And found the perfect ploy -  
 He thought it super-neat and cool  
@@ -11428,8 +11663,8 @@ But lots of others wanted in.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/by8yf7/what_black_market_did_kids_at_your_school_run/eqfrezy/
 ----
-
 He sits in the darkness and stares at the screen -  
 The posts and the comments, the letters between -  
 The words that bedazzle, bemuse and bewitch.  
@@ -11438,8 +11673,8 @@ The words that bedazzle, bemuse and bewitch.
 
 "... *you son of a bitch*."
 
+/r/AskReddit/comments/by8yf7/what_black_market_did_kids_at_your_school_run/eqfgzrs/
 ----
-
 He stood in the hallway, his hood sitting low -  
 Just watching them coming and watching them go.  
 A shadow I hated but hungered to see -  
@@ -11465,8 +11700,8 @@ My vice.
 
 *Silly bandz.*
 
+/r/AskReddit/comments/by8yf7/what_black_market_did_kids_at_your_school_run/eqf3hk9/
 ----
-
 >OP's partner had no money to pay off the balance monthly. They just didn't have the cash flow at all...
 
 "I like to spend my money.  
@@ -11493,8 +11728,8 @@ There's nothing makes me cheery
 
 ... till it's gone."
 
+/r/AskReddit/comments/bxgldm/rich_people_of_reddit_who_married_someone/eq7550u/
 ----
-
 If maybe you're weary of feeling alone -  
 Dejected and jaded with days on your own -  
 There's really, quite clearly just one thing to do -  
@@ -11511,8 +11746,8 @@ It's all you can do.
 
 ^^^:)
 
+/r/AskReddit/comments/bxat83/people_who_have_made_friends_outside_of_work_and/eq5fba7/
 ----
-
 You've woken for days and for weeks with her there -  
 You've spoken of chances and futures you'll share -  
 And though there was trouble and worry and doubt -  
@@ -11530,8 +11765,8 @@ The answer is certain.
 
 You just have to go.
 
+/r/AskReddit/comments/bx9i6s/what_secret_are_you_keeping_right_now/eq5dw0v/
 ----
-
 When Little Timmy saw a deer,  
 One splendid summer's dawn -  
 He watched with hope and joyful cheer  
@@ -11549,8 +11784,8 @@ But deers are fully metal, bro.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/bwi25o/redditors_whats_the_most_metal_thing_youve_ever/epy9tae/
 ----
-
 You won't always,  
 don't always  
 get what you need -  
@@ -11580,8 +11815,8 @@ You have to survive them.
 
 It's all you can do.
 
+/r/AskReddit/comments/bvwsxh/what_was_the_hardest_piece_of_news_youve_had_to/eptlx9w/
 ----
-
 "But when will she?" you will wonder,  
 And I'll tell you and you'll weep -  
 And your cries will take you under  
@@ -11604,8 +11839,8 @@ It's the kindest lie to sell you.
 
 I will answer: "... maybe soon."
 
+/r/AskReddit/comments/bvwsxh/what_was_the_hardest_piece_of_news_youve_had_to/eptchc7/
 ----
-
 He walked by the shelving and there he espied -  
 A robot with gadgets and gizmos inside -  
 A set for constructing a marble-run maze -  
@@ -11631,8 +11866,8 @@ He *saw* it.
 
 He sees it no more.
 
+/r/AskReddit/comments/bvkru1/what_business_or_store_that_was_killed_by_the/epq9zxw/
 ----
-
 >I think 7/11 would have been fine.
 
 How well he remembered that terrible day.  
@@ -11644,8 +11879,8 @@ He wrote "*6/11*?"
 
 He said: "... that'll do."
 
+/r/AskReddit/comments/bvgvkh/if_911_happened_two_months_earlier_what_do_you/eppe9sf/
 ----
-
 >"This too shall pass..."
 
 When storms arrive in darker skies;  
@@ -11665,8 +11900,8 @@ For there are those who hope for you.
 
 And storms are made to end.
 
+/r/AskReddit/comments/bv51tj/depressed_suicidal_or_otherwise_extremely/epn34sa/
 ----
-
 When Little Timmy saw the stairs,  
 He sighed with weary woe -  
 With deep dejected blues and cares,  
@@ -11683,8 +11918,8 @@ But someone somewhere twirled a 'tash.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/bu1s5i/what_fact_is_common_knowledge_to_people_who_work/ep78zjw/
 ----
-
 There were boobies on the ceiling,  
 There were hooters on the floor -  
 There were bouncers there revealing  
@@ -11708,8 +11943,8 @@ And my fingers sort of...
 
 ... stuck.
 
+/r/AskReddit/comments/btlqxy/whats_your_caught_in_a_nsfw_situation_at_work/ep065pe/
 ----
-
 He looked at my penis.  
 
 I held it at bay.
@@ -11737,8 +11972,8 @@ With only my lusty libido to blame.
 "... it's *nothing*," he whispered,  
 and thus shut the door.
 
+/r/AskReddit/comments/btlqxy/whats_your_caught_in_a_nsfw_situation_at_work/ep01zlf/
 ----
-
 When Little Timmy met a girl,  
 A stripper, truth be told -  
 He loved their bed-time tryst and twirl,  
@@ -11755,8 +11990,8 @@ He slowly went inside.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/bt7nbi/nsfw_men_of_reddit_whats_the_greatest_realization/eovhsc7/
 ----
-
 And I know that I could click it,  
 I could do it,  
 do it, don't -  
@@ -11766,8 +12001,8 @@ I could *click* it...
 
 ... but I won't.
 
+/r/AskReddit/comments/bt7nbi/nsfw_men_of_reddit_whats_the_greatest_realization/eovfx7e/
 ----
-
 "Imagine," she whispered, "how sweet it would be -  
 To chance on a text that was crafted for *me*.  
 To pick up my phone and to see it," she said -  
@@ -11781,8 +12016,8 @@ She opened her mobile.
 
 She closed it again.
 
+/r/AskReddit/comments/bt6xsx/what_are_the_little_things_that_genuinely_make/eouzryg/
 ----
-
 In the moment after nutting -  
 In the seconds after that -  
 In the minutes after shutting  
@@ -11803,8 +12038,8 @@ As you see with doubt and dread -
 If you'd only waited longer,  
 There was better just ahead.
 
+/r/AskReddit/comments/bt7nbi/nsfw_men_of_reddit_whats_the_greatest_realization/eouytmq/
 ----
-
 I was feeling kinda queasy,  
 Something sorta outta whack -  
 When the doctor said: "that's easy,"  
@@ -11827,8 +12062,8 @@ But he only whispered:
 
 "... doc?"
 
+/r/AskReddit/comments/bsu3we/men_of_reddit_what_nsfw_male_lifestyle_hack_can/eor86lt/
 ----
-
 In the bathroom there he stands -  
 Razor in his shaking hands -  
 Ankles thin as candle wicks -  
@@ -11846,8 +12081,8 @@ Nude aside for scanty smalls -
 
 Plastic bag beneath his balls.
 
+/r/AskReddit/comments/bsu3we/men_of_reddit_what_nsfw_male_lifestyle_hack_can/eor0j47/
 ----
-
 He does the bouncy pee-pee dance.  
 He tucks it back inside his pants.  
 He holds his breath and slowly zips.  
@@ -11856,8 +12091,8 @@ There are no drips.
 
 *There are no drips.*
 
+/r/AskReddit/comments/bskplh/you_acquire_the_finite_gauntlet_it_gives_you_the/eoo5wuk/
 ----
-
 "Desert-throated,  
 dry and dusty?  
 Mouth unmoistened,  
@@ -11877,8 +12112,8 @@ Tell your son, and tell your daughter!
 
 Make a choice and make it water!"
 
+/r/AskReddit/comments/bsg50t/whats_the_best_way_to_pass_the_time_at_a_boring/eonic3r/
 ----
-
 He waits by the phone and he sighs in dismay -  
 For nobody calls anymore in the day.  
 But that's when it rings, and he answers with glee.  
@@ -11887,8 +12122,8 @@ He picks up the phone and it says:
 
 "... it's a-me."
 
+/r/AskReddit/comments/bs3th0/what_is_a_productservice_that_you_cant_still/eojinye/
 ----
-
 "Can you fax it?" he said,  
 But she just shook her head,  
 As he stared in the silence between.  
@@ -11897,8 +12132,8 @@ So she wearily sighed,
 "I cannot," she replied,    
 "For the year is two-thousand nineteen."
 
+/r/AskReddit/comments/bs3th0/what_is_a_productservice_that_you_cant_still/eoj0b23/
 ----
-
 "I've nurtured a notion!" he said with a smile -  
 "A pageant for *children* on beauty and style!  
 We'll judge them in dresses, and tutus, and tights!  
@@ -11915,8 +12150,8 @@ And then, while they're young and defenceless, distressed -
 
 We'll rank them by beauty, and pick out the best."
 
+/r/AskReddit/comments/bs3th0/what_is_a_productservice_that_you_cant_still/eoiw7zz/
 ----
-
 If your face was pure and pretty -  
 If your looks were fond and fair -  
 If your mind was wise and witty,  
@@ -11932,8 +12167,8 @@ when you're perfect.
 
 ... but you're not.
 
+/r/AskReddit/comments/brayzq/what_is_the_greatest_comeback_to_an_insult_youve/eodho84/
 ----
-
 When Little Timmy mocked his dad,  
 One former, fated day -  
 He didn't think it wrong or bad,  
@@ -11951,8 +12186,8 @@ But Timmy's dad was unimpressed.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/brayzq/what_is_the_greatest_comeback_to_an_insult_youve/eodexsn/
 ----
-
 And there it was she saw his name -  
 His foul and fetid claim to fame -  
 The sordid story stored below.  
@@ -11961,8 +12196,8 @@ She sat and read.
 
 She whispered: "... *oh*."
 
+/r/AskReddit/comments/bqhfq9/whats_your_i_finally_met_my_online_friend_horror/eo5glzj/
 ----
-
 "I can't afford a cruise," said she,  
 "With rent and taxes too.  
 But that's all right -  
@@ -11985,8 +12220,8 @@ Just something made for us," she said.
 
 Her friend replied: "... fuck you."
 
+/r/AskReddit/comments/bqhfq9/whats_your_i_finally_met_my_online_friend_horror/eo5ep18/
 ----
-
 When Little Timmy took a job,  
 Upon his starting day -  
 He took a tour from Foreman Bob,  
@@ -12009,8 +12244,8 @@ And Little Timmy touched the thing.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/bq2sd5/tour_guides_of_reddit_whats_the_worst_thing_a/eo0tawq/
 ----
-
 >How some can do that in such a sombering place is just...beyond me...
 
 And there, at the foot of the steps where they'd cry -  
@@ -12020,16 +12255,16 @@ the old and the sick -
 
 They gathered together and grinned for a pic.
 
+/r/AskReddit/comments/bq2sd5/tour_guides_of_reddit_whats_the_worst_thing_a/eo0rt7w/
 ----
-
 We shuffled and shambled and ambled and went -  
 And each of us sleepy, and each of us spent -  
 And both of us ready for rolling away.  
 
 But dammit, these sheets were just changed yesterday.
 
+/r/AskReddit/comments/boqtvj/what_are_the_not_so_fun_parts_of_sex_that_no_one/enki2vx/
 ----
-
 And so, through the wall, where I slumbered in bed -  
 A sound came a-wandering into my head.  
 The burble of bubbles, the shiver and shake -  
@@ -12042,8 +12277,8 @@ The liquidy tunes.
 
 I turned on my pillow and dreamt of balloons.
 
+/r/AskReddit/comments/boqtvj/what_are_the_not_so_fun_parts_of_sex_that_no_one/enkgyun/
 ----
-
 Though your weenie might be weenie,  
 And your pecker is a speck -  
 And your todger is so teenie  
@@ -12065,8 +12300,8 @@ And it isn't what you're doing -
 
 It's the way you do it, bro.
 
+/r/AskReddit/comments/bobtwf/what_is_in_your_opinion_the_biggest_flaw_of_the/enf74vg/
 ----
-
 >When I'm bored, and I am damn often bored, I act entitled and 'punish' those drivers who ring the bell angrily. I then let them wait for an extra 20 seconds before I let them in...
 
 You can sit there slowly ageing,  
@@ -12090,8 +12325,8 @@ For you might be sick of waiting...
 
 But I'm keeper of the gate.
 
+/r/AskReddit/comments/bo3owh/whats_the_best_job_for_a_lazy_person/encw63g/
 ----
-
 Oompah-loompa, doopity-doo,  
 I've got another package for you.  
 Oompah-loompa, doopity-dee,  
@@ -12120,8 +12355,8 @@ Like the Oompah-loompas doopity-doo.
 
 Doopity-doo!
 
+/r/AskReddit/comments/bndpre/if_jeff_bezos_died_and_left_his_fortune_to/en5kasd/
 ----
-
 Have you never heard them speak?  
 Heard them crumble, heard them creak?  
 Heard them cry in rolling rhyme?  
@@ -12140,8 +12375,8 @@ Have you heard them?
 
 ... nor have I.
 
+/r/AskReddit/comments/bncqlb/if_movie_titles_were_taken_literally_what/en55r18/
 ----
-
 When Little Timmy heard the news  
 One fair and fated day -   
 He didn't think or pause to choose,  
@@ -12158,8 +12393,8 @@ For *Amazon*, unlucky boy.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/bndpre/if_jeff_bezos_died_and_left_his_fortune_to/en51jio/
 ----
-
 They watched and they waited.  
 They stayed and they stared.  
 In silence,  
@@ -12183,8 +12418,8 @@ They watched and they waited.
 
 He said: "... is this it?"
 
+/r/AskReddit/comments/bncqlb/if_movie_titles_were_taken_literally_what/en4tdig/
 ----
-
 >... everytime I hear it I have a split second of vietnam flashbacks...
 
 >... I have this wave of anxiety...
@@ -12207,8 +12442,8 @@ And it leaves him lost and sore -
 But it's really quite confusing,  
 Cause he's never been to war.
 
+/r/AskReddit/comments/blzj3m/what_typical_sound_cant_you_stand/emt22u8/
 ----
-
 "I have stepped," she explained, "over sand-dune and sea -  
 I have walked and I've crawled over dust and debris -  
 I have looked for the way -  
@@ -12229,8 +12464,8 @@ From the dark he emerged, and he said to her:
 
 "... no."
 
+/r/AskReddit/comments/blrjnj/youre_transported_200_years_into_the_past_with_a/emrouvs/
 ----
-
 "I do not need to see to know  
 The best of things that wait below,  
 The finest parts,  
@@ -12245,8 +12480,8 @@ I don't need eyes.
 
 ... just hands," he said.
 
+/r/AskReddit/comments/bljq8j/blind_people_of_reddit_what_do_you_find_sexually/empndv9/
 ----
-
 I used to play with Uncle Pete.  
 He'd let me win,  
 he'd let me cheat.  
@@ -12258,8 +12493,8 @@ I played with him.
 
 He played with me.
 
+/r/AskReddit/comments/blcbrl/whats_a_problem_you_and_your_ancestors_from_4000/emoblgc/
 ----
-
 When Little Timmy did a poop,  
 One fine but fateful night -  
 He felt a pinch beneath his hoop,  
@@ -12276,8 +12511,8 @@ And Little Timmy lost his mind.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/blcbrl/whats_a_problem_you_and_your_ancestors_from_4000/emo3uau/
 ----
-
 "How darling my dearest descendants will be!  
 More truly appealing and pleasing than me!  
 For though I am ugly, unpleasant, unfair -  
@@ -12298,8 +12533,8 @@ He said to him:
 
 "... oh."
 
+/r/AskReddit/comments/blcbrl/whats_a_problem_you_and_your_ancestors_from_4000/emnsj2v/
 ----
-
 >Plus any number of individual responses unique to the situation and the individual. Some kids thrive, some suffer greatly. Resilience is a funny and unpredictable thing.
 
 "The thing," he said,  
@@ -12319,8 +12554,8 @@ really...
 
 ... knows."
 
+/r/AskReddit/comments/bl9kpw/behavioural_psychologists_what_actually_happens/emmwarp/
 ----
-
 "Do not sell weed," she spoke, severe -  
 "I do not, *do not* want to hear,  
 In times of darkness, doubt or dread,  
@@ -12340,8 +12575,8 @@ Do not sell weed.
 
 Sell vicodin."
 
+/r/AskReddit/comments/bkwyr5/moms_of_reddit_what_is_a_wild_secret_of_your_past/emkl31t/
 ----
-
 "I see," said he, bereaved, bereft,  
 His heart in seconds sank.  
 
@@ -12349,8 +12584,8 @@ He turned away and sadly left.
 
 He went back home to wank.
 
+/r/AskReddit/comments/bkp27f/people_who_declined_a_proposal_why_did_you_do_it/emiw92j/
 ----
-
 >Sometimes you gotta learn lessons the hard way...
 
 >The only bad experiences are the ones you don't learn from...
@@ -12372,8 +12607,8 @@ I've felt my chances fall.
 I'd rather fail a thousand more  
 Than never try at all.
 
+/r/AskReddit/comments/bkp27f/people_who_declined_a_proposal_why_did_you_do_it/emit0t7/
 ----
-
 "I'll stab up your sister.  
 I'll murder your ma.  
 Machete your granny, your brother, your pa.  
@@ -12394,8 +12629,8 @@ She said to him:
 
 "... what."
 
+/r/AskReddit/comments/bkp27f/people_who_declined_a_proposal_why_did_you_do_it/emirk1y/
 ----
-
 "I know what you're thinking," he said to her slow -  
 He glanced to the sight of his penis below -  
 The girl to his left in her place on the bed -  
@@ -12417,8 +12652,8 @@ I want you to...
 
 ... marry me, dear?"
 
+/r/AskReddit/comments/bkp27f/people_who_declined_a_proposal_why_did_you_do_it/emiq7jz/
 ----
-
 "Underneath my pants," said he -  
 "Under, where my boxers be -  
 Underneath the place below -  
@@ -12434,8 +12669,8 @@ under there -
 
 ... sits another, other pair."
 
+/r/AskReddit/comments/bkjqjj/parents_on_reddit_what_was_your_i_raised_an_idiot/emhsd2f/
 ----
-
 You'll weather the wind and the rain and the rough -  
 And sometimes you'll try but it won't be enough.  
 
@@ -12445,8 +12680,8 @@ but it's not up to you.
 You did what you could,  
 and that's all you can do.
 
+/r/AskReddit/comments/bj4hfq/medical_workers_of_reddit_what_were_the_most/em5vsum/
 ----
-
 "Goodnight, my darling son," said he,  
 And as the stars were shining bright,  
 He wiped a tear and looked at me,  
@@ -12468,8 +12703,8 @@ I watched him go.
 
 I said: "... the fuck?"
 
+/r/AskReddit/comments/bj35fa/what_sounded_like_a_good_piece_of_advice_until/em5nd85/
 ----
-
 When Little Timmy made a meal,  
 He said with deep delight:  
 "How wonderful it is to feel  
@@ -12492,8 +12727,8 @@ But Little Timmy's knife was dull.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/bj3jlb/whats_something_you_wish_more_people_knew_about/em5hmxk/
 ----
-
 Spare a thought for cleaner Bob.  
 Workin' hard to keep a job.  
 Sweepin' floors and dustin' chairs.  
@@ -12507,8 +12742,8 @@ Stares above.
 
 Sadly grabs a bag and glove.
 
+/r/AskReddit/comments/bip8fg/people_who_watch_security_cameras_for_a_living/em2pnwl/
 ----
-
 "YUM YUM YUM," he says and grins.  
 Rips at skin with teeth like pins.  
 Scoops the chunks and starts to smile.  
@@ -12527,8 +12762,8 @@ Tummy rumbles.
 
 Time to eat.
 
+/r/AskReddit/comments/bip8fg/people_who_watch_security_cameras_for_a_living/em2nwrx/
 ----
-
 See that unassuming man?  
 Making do with what he can?  
 Getting on with what he's got?  
@@ -12547,16 +12782,16 @@ What's he planting?
 
 Yep, that's weed.
 
+/r/AskReddit/comments/bi56ju/what_is_something_you_know_but_youre_not_supposed/elyqnnu/
 ----
-
 Take paper. Take pads and take pencils. Take two.  
 Take notebooks or post-its or folders, a few.  
 For pens can be pilfered or harmlessly plucked.  
 
 But if you take money, my honey - you're *fucked*.
 
+/r/AskReddit/comments/bi56ju/what_is_something_you_know_but_youre_not_supposed/elypmld/
 ----
-
 'You mustn't *question* me, my dear,  
 Not up or down, or far or near,  
 Or front or back, or fast or slow,  
@@ -12577,8 +12812,8 @@ He said:
 
 '... but why?'
 
+/r/AskReddit/comments/bhs43l/subway_employees_of_reddit_what_was_the_grossest/elw5xv8/
 ----
-
 When I'm on my own and lonely,  
 And I've nowhere else to be -  
 Then I take a moment only,  
@@ -12603,8 +12838,8 @@ Just a happy lonesome wank.
 
 ^^^:)
 
+/r/AskReddit/comments/bh2y1b/whats_your_favorite_euphemism_for_masturbation/elqa637/
 ----
-
 When Little Timmy took the train,  
 One fine but fateful day -  
 He slowly closed his eyes in pain  
@@ -12621,8 +12856,8 @@ He sighed and made a mighty frown -
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/bg1bdu/people_who_blast_music_on_their_cell_phone_during/eli779d/
 ----
-
 When Little Timmy went to school,  
 And sat down next to Stu -  
 He said: "I'm really far more cool,  
@@ -12641,8 +12876,8 @@ that's all.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/bfhflk/whats_an_irl_version_of_a_level_1_bad_guy/ele5exg/
 ----
-
 "I would piss myself, my dearest -  
 I would dampen down below -  
 I would moisten all the nearest  
@@ -12668,8 +12903,8 @@ Say *banana*.
 
 Be my guest."
 
+/r/AskReddit/comments/bf6cm0/you_will_get_20_million_dollars_if_you_agree_to/elbwt97/
 ----
-
 Human  
 nips  
 for  
@@ -12682,16 +12917,16 @@ for
 daddy's  
 lips.
 
+/r/AskReddit/comments/beof2u/do_you_think_a_baby_centaur_would_suck_on_the/el7ydb8/
 ----
-
 "The muscular arms of a centaur," he sighed -  
 "The sinewy limbs of the horse-man," he cried -  
 "Though hard to confirm if I'm right or I'm wrong -  
 
 ... I'd hazard a guess that they're quite fucking strong."
 
+/r/AskReddit/comments/beof2u/do_you_think_a_baby_centaur_would_suck_on_the/el7uxle/
 ----
-
 'Do you down it,  
 Do you drink it,   
 Do you drain it from a jug?  
@@ -12716,8 +12951,8 @@ So the Centaur thought a minute.
 
 '... well I'll show you,' it replied.
 
+/r/AskReddit/comments/beof2u/do_you_think_a_baby_centaur_would_suck_on_the/el7soab/
 ----
-
 "I look like a sausage," he said with a sigh.  
 "As ugly and ever as round as a pie.  
 I'm plain and unpleasant, unshapely and stout -  
@@ -12735,8 +12970,8 @@ He waited in woe.
 
 She whispered: "... at least you've got *honesty*, bro."
 
+/r/AskReddit/comments/bef1bk/parents_who_have_one_child_much_more_physically/el60amh/
 ----
-
 >every time you abused the fast pass system someone had to wait an extra minute or so in line...
 
 When Little Timmy stood in line,  
@@ -12761,8 +12996,8 @@ But Timmy hadn't moved at all.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/be6lqh/what_is_something_illegal_you_have_done_and_got/el427d4/
 ----
-
 
 >Basset hounds don't give a fuck and swear like sailors.
 
@@ -12787,8 +13022,8 @@ But replied my pupper muncher:
 
 "... holy fuck just feed me, bitch."
 
+/r/AskReddit/comments/be6i9v/what_is_the_weirdest_thing_you_do_when_youre_alone/el3ue1x/
 ----
-
 I could say that  
 I would play that,  
 But I shouldn't  
@@ -12820,8 +13055,8 @@ meant to be.
 
 ^^^:(
 
+/r/AskReddit/comments/be5i81/former_gamers_of_reddit_what_was_the_reason_you/el3ru0d/
 ----
-
 This cute and beauty bae of mine  
 Is sweet and neat and fine and fair,  
 She's all delight,  
@@ -12844,8 +13079,8 @@ She gave me crabs.
 
 My bollocks itch.
 
+/r/AskReddit/comments/be0z1g/people_getting_off_planes_in_hawaii_immediately/el30hyg/
 ----
-
 It takes an awful lot of smarts,  
 A gifted build of moving parts,  
 To simplify what's hard to know  
@@ -12853,8 +13088,8 @@ Enough to make you whisper:
 
 "... *oh*."
 
+/r/AskReddit/comments/bcnwcf/who_was_the_smartest_person_you_ever_met_how_did/ekswc90/
 ----
-
 "You cumberwold! You gadabout!  
 You lily-livered, lazy lout!  
 You scallywag! You cad! You loon!  
@@ -12871,8 +13106,8 @@ You mumblecrust! You fussock-pie!"
 
 "… I know you are, but what am I?"
 
+/r/AskReddit/comments/bcqecy/what_insults_make_you_sound_classy_and_intelligent/eksv2je/
 ----
-
 When I'm feeling down and out -  
 Full of sorrow, full of doubt -  
 Full of pain and feeling through -  
@@ -12892,8 +13127,8 @@ How I love and miss you too.
 When I smile,  
 I think of you.
 
+/r/AskReddit/comments/bcnwcf/who_was_the_smartest_person_you_ever_met_how_did/eksnhu2/
 ----
-
 When the world has left me weary,  
 And I've no more will to roam -  
 Then I leave the drab and dreary,  
@@ -12919,8 +13154,8 @@ I can freely take a shit.
 
 ^^^:)
 
+/r/AskReddit/comments/bcgf0e/what_makes_your_home_home/ekr3jvm/
 ----
-
 "These mighty matching balls of mine  
 Are much the same and each as fine  
 And each alike in shapes and tones.  
@@ -12928,8 +13163,8 @@ You see," said he:
 
 "... they're testiclones."
 
+/r/AskReddit/comments/bbyoq7/what_is_the_most_pointless_thing_that_actually/eknaaan/
 ----
-
 "I love him as much as the stars in the sky -  
 As warm as a hug and as soft as a sigh.  
 As slow and as sure and as strong as the tide -  
@@ -12950,8 +13185,8 @@ She whispered:
 
 "... fuck you."
 
+/r/AskReddit/comments/bafcge/marriageengagement_photographersvideographers_of/ekbjbsg/
 ----
-
 >when one of the pair start doubting whether they should go through with it waaay before the day...
 
 "It's just... I don't know if I'm ready," he spoke.  
@@ -12972,8 +13207,8 @@ She whispered with dread:
 
 "... then why in the *fuck* did you ask me?" she said.
 
+/r/AskReddit/comments/bafcge/marriageengagement_photographersvideographers_of/ekbhxbu/
 ----
-
 >For $1000000000 dollars would you X?
 
 "Would you do it for the money,  
@@ -12998,8 +13233,8 @@ So he answered on the double:
 
 "... yes *of course* I fucking would."
 
+/r/AskReddit/comments/bacjo1/what_is_the_dumbest_post_youve_see_hit_the_front/ekaxgad/
 ----
-
 And so they fell,  
 And fell and fell,  
 By one, by two,  
@@ -13023,8 +13258,8 @@ He said:
 
 "I am the GOAT."
 
+/r/AskReddit/comments/b9mbbe/if_you_got_paid_10000_per_lb_you_get_one_punch/ek5t7o3/
 ----
-
 Would you sucker punch a monkey?  
 Would you uppercut a bear?  
 Would you smack a little chunky  
@@ -13047,8 +13282,8 @@ Would you punch a little kitty?
 
 ... 'cause I think I'd pick a kid.  
 
+/r/AskReddit/comments/b9mbbe/if_you_got_paid_10000_per_lb_you_get_one_punch/ek5pdlf/
 ----
-
 It crept up beside him.  
 No rush to begin.  
 It crept up beside him and just settled in.  
@@ -13073,8 +13308,8 @@ How close it had gotten.
 
 How close to him now.
 
+/r/AskReddit/comments/b8y7lt/what_is_something_nice_going_on_in_your_life/ek1gony/
 ----
-
 It didn't.  
 It wouldn't.  
 How could it?  
@@ -13092,8 +13327,8 @@ I don't think it happened.
 
 Except that it did.
 
+/r/AskReddit/comments/b8j7rn/what_is_the_greatest_upset_in_sports_history/ejyie6y/
 ----
-
 And so they laughed -  
 and how they did!  
 Oh what *delight* it is to kid!  
@@ -13105,8 +13340,8 @@ The words of whim he'd left with glee,
 And when they'd gaily wiped an eye,  
 They turned back to their games to die.  
 
+/r/AskReddit/comments/b82i9f/what_would_happen_if_you_combined_your_favorite/ejvvfwv/
 ----
-
 There's large things and high things  
 and low things galore -  
 And round things and square things  
@@ -13128,8 +13363,8 @@ And I don't want *any*.
 Not any at all.
 
 
+/r/AskReddit/comments/b7oy9d/goodwillthrift_shop_workers_what_are_some_of_the/ejtl5ic/
 ----
-
 "I love you," it started,  
 "I love you," it said.  
 "From now till forever and ever ahead.  
@@ -13150,8 +13385,8 @@ It ended:
 
 "... I can't wait to give you this note."
 
+/r/AskReddit/comments/b7oy9d/goodwillthrift_shop_workers_what_are_some_of_the/ejtglzf/
 ----
-
 "Excuse me," he started,  
 "this vase," he explained -  
 "Has dearly departed  
@@ -13182,8 +13417,8 @@ He stared at her, waiting.
 He whispered: "... how much?"
 
 
+/r/AskReddit/comments/b7oy9d/goodwillthrift_shop_workers_what_are_some_of_the/ejtfjya/
 ----
-
 You loved me with never a worry or doubt -  
 You loved me in good times and bad times throughout.  
 You loved me, though sometimes the going was rough -  
@@ -13198,8 +13433,8 @@ I've wished,
 how I've wished  
 that I'd told you it more.  
 
+/r/AskReddit/comments/b6wkxa/what_is_your_i_wish_i_had_started_doing_that/ejo413d/
 ----
-
 "But never you worry - I'm sure you'll be fine!  
 I'm sure you'll survive in this darkness divine!  
 I'm sure in the life that you're leaving behind -  
@@ -13220,8 +13455,8 @@ Get ready!
 It's... *oh*."
 
 
+/r/AskReddit/comments/b6rhq1/people_who_have_been_in_a_coma_what_was_it_like/ejn1xss/
 ----
-
 He stared at the question, and that's when he knew -  
 He'd spied it before in a thread or a few.  
 He'd read what they'd written.  
@@ -13244,8 +13479,8 @@ He looked at the questions.
 
 He whispered: "... oh *heck*."
 
+/r/AskReddit/comments/b4unww/youve_been_put_in_charge_of_running_heck_an/ej9p1zw/
 ----
-
 'I've got it!' said Satan, and grinned with delight:  
 'May all of their sneezes arrive in the night!  
 May all of their tables be tippy!' he cried:  
@@ -13267,8 +13502,8 @@ He danced and he bopped and he bounded and bounced!
 
 *'And let there be stones in their shoes!'* he announced.
 
+/r/AskReddit/comments/b4unww/youve_been_put_in_charge_of_running_heck_an/ej9hkwd/
 ----
-
 my name is Dog,  
 an even tho  
 im sorta  
@@ -13281,8 +13516,8 @@ i still need walks.
 
 im good boi/girl.
 
+/r/AskReddit/comments/b4ka34/doctors_of_reddit_what_is_a_1_in_a_million_chance/ej7gylt/
 ----
-
 "I do not want that thing in me.  
 I do not want it,  
 can't you see?  
@@ -13307,8 +13542,8 @@ but if you do -
 
 ... I may just have to shit on you."
 
+/r/AskReddit/comments/b4ka34/doctors_of_reddit_what_is_a_1_in_a_million_chance/ej7eg3f/
 ----
-
 "How was fishing?" she had started,  
 But she finished in despair -  
 For her happy face departed  
@@ -13330,8 +13565,8 @@ And he whispered, hurt and broken:
 
 "... twas an *orgy*," he explained.
 
+/r/AskReddit/comments/b4iash/hunters_of_redditwhat_did_you_see_out_there_that/ej77wto/
 ----
-
 And Buzzfeed, who had clicked this thread,  
 Observed the post and words and said,  
 Behind the screens,  
@@ -13339,8 +13574,8 @@ from where they sat:
 
 "... I don't think we'll be doing that."
 
+/r/AskReddit/comments/b4j5oh/what_would_you_think_of_buzzfeed_having_to_pay_us/ej70xeh/
 ----
-
 "I know you're out of hope  
 to share -  
 And though it's hard to cope  
@@ -13364,8 +13599,8 @@ Remember this:
 
 I'm here for you."
 
+/r/AskReddit/comments/b4ebif/teachers_of_reddit_when_can_you_tell_if_a_student/ej6jg44/
 ----
-
 "Alas, alack," the doctor said -  
 He slowly, surely shook his head.  
 "The thing I think you thought below  
@@ -13384,8 +13619,8 @@ It is," he said,
 
 ... a shit."
 
+/r/AskReddit/comments/b482j7/deaf_community_of_reddit_what_are_the/ej5kac9/
 ----
-
 Right they ramble, left they wander,  
 Walk, meander, stop and ponder,  
 Shuffle softly, amble aimless,  
@@ -13405,8 +13640,8 @@ Slowing -
 
 *Everywhere* the fuck I'm going.
 
+/r/AskReddit/comments/b3p7fa/what_is_a_basic_etiquette_everyone_should_know/ej1urg2/
 ----
-
 And so, he left -  
 A flick, a swish -  
 A witch's will,  
@@ -13421,8 +13656,8 @@ I said: '... come back.'
 
 ^^^^:(
 
+/r/AskReddit/comments/b3b29d/whats_your_i_met_a_celebrity_but_didnt_let_on/eiyzfvc/
 ----
-
 And when the cheque came through the door,  
 It was not "two" I read, but *more*.  
 I paused in thought.  
@@ -13432,24 +13667,24 @@ I wondered why.
 
 I whispered: '... *oh.*'
 
+/r/AskReddit/comments/b36d2h/you_can_have_2000000_but_your_worst_enemy_gets/eixvo0o/
 ----
-
 I still recall the day, bereft,  
 The fated night my childhood left,  
 For there, forlorn, for all to see...
 
 Was Pee Wee's weepy wee peepee.
 
+/r/AskReddit/comments/b242lp/what_movie_would_be_totally_nsfw_if_you_remove/eiqpsw0/
 ----
-
 "Man, the first was something new!  
 Now it's time for number two!  
 Come for capers, stay for Jack!   
 
 ... Jack Black's *Jack Black's Black Jack*'s back!"
 
+/r/AskReddit/comments/b24v5k/dear_reddit_what_is_your_weirdest_dreamnightmare/eiqn3vz/
 ----
-
 When Little Timmy wrote a song,  
 The saddest song of all -  
 His words were played and passed along,  
@@ -13467,8 +13702,8 @@ But Timmy married Courtney Love.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/b20z5v/whats_a_good_song_that_tells_a_sad_story/eipzfno/
 ----
-
 When Little Timmy worked his shift,  
 And felt the lull begin -  
 His sleepy eyes began to drift...  
@@ -13486,8 +13721,8 @@ But no one else came in that night.
 
 And Timmy fucking died.  
 
+/r/AskReddit/comments/b1slv2/long_haul_truckers_whats_the_creepiestmost/eioddrb/
 ----
-
 my name is Pug,  
 an wen i see  
 a passin truk  
@@ -13499,8 +13734,8 @@ i gots my job.
 i make the fart.
 
 
+/r/AskReddit/comments/b1slv2/long_haul_truckers_whats_the_creepiestmost/eio6ghg/
 ----
-
 >... any progress is good progress.  
 
 And day by day,  
@@ -13519,16 +13754,16 @@ along the way.
 
 
 
+/r/AskReddit/comments/b1nfy5/what_is_the_i_study_animation_so_i_can_draw_my/einbuwi/
 ----
-
 'And yes, I'll be dead as the dodo,' he said -  
 'Incredibly, stunningly, certainly dead -  
 Deceased and departed, decidedly done -
 
 ... but dammit,' he whispered, 'at last I'll have *won*.'  
 
+/r/AskReddit/comments/b1gy72/you_have_to_fight_an_exact_copy_of_yourself_to/eim3z2m/
 ----
-
 When Little Timmy met himself,  
 They both agreed it best -   
 To put their troubles on a shelf,  
@@ -13546,8 +13781,8 @@ But Tim had *plans*, and so did Tim.
 
 And Timmys fucking died.
 
+/r/AskReddit/comments/b1gy72/you_have_to_fight_an_exact_copy_of_yourself_to/eilwlpi/
 ----
-
 Said me to me:  
 'We mustn't fight!  
 We ought to try  
@@ -13578,8 +13813,8 @@ I guess we saw it...
 I to I.  
 
 
+/r/AskReddit/comments/b1gy72/you_have_to_fight_an_exact_copy_of_yourself_to/eiludsk/
 ----
-
 There is  
 a hole  
 inside  
@@ -13599,8 +13834,8 @@ I only
 know  
 I'm *bagel* now.  
 
+/r/AskReddit/comments/b0zjdk/whats_a_real_fact_that_some_people_dont_want_to/eiirnbb/
 ----
-
 And when I'm at a dinner date,   
 And conversation's going great -  
 We've spoken long of stuff sublime,  
@@ -13616,8 +13851,8 @@ And all our future's taking shape -
 
 I bring the talk around to rape.  
 
+/r/AskReddit/comments/b0zjdk/whats_a_real_fact_that_some_people_dont_want_to/eiiq1jw/
 ----
-
 'That man,' said she,  
 'I think that he,  
 I think that him,  
@@ -13628,8 +13863,8 @@ has got,
 I think,  
 a *penis* head.'  
 
+/r/AskReddit/comments/b07rzr/proposed_alabama_law_would_require_residents_to/eidflvx/
 ----
-
 When thousands couldn't feed themselves,  
 And opened doors to empty shelves,  
 Or sat in pain as mornings passed,  
@@ -13641,8 +13876,8 @@ or getting thin -
 
 At least the *commies* wouldn't win.
 
+/r/AskReddit/comments/b07rzr/proposed_alabama_law_would_require_residents_to/eidem2j/
 ----
-
 He hung up the phone and he stared for a while.  
 No sign of amusement.  
 No hint of a smile.  
@@ -13652,8 +13887,8 @@ He sighed in the silence.
 
 He whispered: '... but *why?*'
 
+/r/AskReddit/comments/azfgz0/what_is_an_adult_life_equivalent_of_calling_your/ei7i65l/
 ----
-
 He woke in the silence and lifted his head.  
 He looked at me sleepily, 'sorry,' he said.  
 He rolled to the pillow.  
@@ -13665,8 +13900,8 @@ I whispered:
 
 '... don't go.'
 
+/r/AskReddit/comments/azalb2/as_a_straight_guy_whats_the_gayest_thing_youve/ei6xvcz/
 ----
-
 'Your eyes are as blue as the hue of the sky -  
 Your breath is as soft as a sweet summer sigh -  
 Your voice is the song of the ocean and tide -  
@@ -13678,16 +13913,16 @@ You shine like the stars in the heavens at night.
 
 ... now drift off to sleep 'cause you high as a kite.'
 
+/r/AskReddit/comments/azalb2/as_a_straight_guy_whats_the_gayest_thing_youve/ei6xb5d/
 ----
-
 'And *yes*, it is killing me, slaying me slow -  
 And *maybe* I'm heading for heartache, I know -  
 And *maybe* my end is approaching,' he said -  
 
 '... but think of the money I'll have when I'm dead!'  
 
+/r/AskReddit/comments/az3urn/what_mistake_should_have_killed_you/ei5lsdr/
 ----
-
 When Little Timmy bought a bike,  
 He rode it to and fro -   
 He rode it when and how he'd like,  
@@ -13707,8 +13942,8 @@ And Timmy fucking died.
 
 
 
+/r/AskReddit/comments/az3urn/what_mistake_should_have_killed_you/ei5l8yb/
 ----
-
 She said: 'you're not so bad, you know?  
 I don't know why they *hate* you, bro!  
 You're such a *total prick*, they say!  
@@ -13720,8 +13955,8 @@ I said: '... okay.'
 
 ^^^^:(
 
+/r/AskReddit/comments/ayd660/what_is_your_moms_catchphrase/ei0ist8/
 ----
-
 And underneath,  
 He shuts his eyes,  
 He lies beneath the weight and sighs,  
@@ -13746,8 +13981,8 @@ soft and slow:
 '... I love you, weighted blanket bro.'  
 
 
+/r/AskReddit/comments/axtih6/what_is_the_most_worth_it_item_you_have_ever/ehwg2rv/
 ----
-
 >At the time it was hard to realize I'd done the right thing, she'd sounded so betrayed on the phone when she realized I'd called the police for her, but she's since turned it around, she's okay, and that's the main thing.
 
 Perhaps you will think I'm betraying your trust -  
@@ -13776,8 +14011,8 @@ You matter to me.
 
 
 
+/r/AskReddit/comments/awujlo/what_is_the_nicest_thing_youve_ever_done_for_a/ehq1hpm/
 ----
-
 We arrived here unrelated -  
 We were born alone, apart -  
 But perhaps I've only waited  
@@ -13795,8 +14030,8 @@ For I didn't get to know you -
 But I'd like to know you now.  
 
 
+/r/AskReddit/comments/awwcfb/whats_some_juicy_gossip_you_just_found_out_in/ehpxk76/
 ----
-
 'I hate you.  
 I *hate* you.  
 *I hate you*,' she spoke.  
@@ -13809,8 +14044,8 @@ I wish you were *dead*.
 ... let's move in together!  
 I love you!' she said.  
 
+/r/AskReddit/comments/awwcfb/whats_some_juicy_gossip_you_just_found_out_in/ehpufsk/
 ----
-
 'And though he'd been plugging the stink portal south -  
 He whipped it above me and went for the mouth!  
 I couldn't *believe* what was happening, mum!'
@@ -13819,8 +14054,8 @@ She answered:
 
 '... I'm troubled by who we've become.'
 
+/r/AskReddit/comments/awsqjw/youve_just_finished_having_sex_what_do_you_say_to/ehp6xvk/
 ----
-
 'Me father's me mother,  
 Me mother's me brother,  
 Me brother's me sister and ma -  
@@ -13838,8 +14073,8 @@ And *me*...
 
 ... I'm a family man.'
 
+/r/AskReddit/comments/awsqjw/youve_just_finished_having_sex_what_do_you_say_to/ehp3a0q/
 ----
-
 When Little Timmy scammed a guy,  
 That faking, taking boy -  
 He gave a self-contented sigh,  
@@ -13865,8 +14100,8 @@ And Timmy fucking died.
 
 
 
+/r/AskReddit/comments/awmdb2/you_have_just_been_cheated_out_of_1000_for_a/ehnt0qf/
 ----
-
 Said Simple Steve: '... there's something *wrong.*  
 I've been here waiting all week long.  
 I've sat and stared.  
@@ -13886,8 +14121,8 @@ Perhaps I ought to close the door.
 
 ... perhaps I'll wait a moment more.'
 
+/r/AskReddit/comments/awkfh5/what_is_a_cheap_hobby_to_pick_up_in_college/ehnrcez/
 ----
-
 She crawled in my lap and she looked up above -  
 A picture, a view and a vision of love.  
 Her eyelids were closing.  
@@ -13897,8 +14132,8 @@ I watched her in silence.
 
 I whispered: '... oh no.'
 
+/r/AskReddit/comments/awkfh5/what_is_a_cheap_hobby_to_pick_up_in_college/ehni8gp/
 ----
-
 'And *then,*' she explained with a nod of her head -  
 'I'll give you it back, only *doubled*!' she said.  
 'So what do you reckon?'  
@@ -13907,8 +14142,8 @@ He looked at the brick.
 
 '... there's no fucking way that this isn't a trick.'
 
+/r/AskReddit/comments/awhdhl/you_are_given_a_brick_and_told_to_sell_it_for/ehmvf3b/
 ----
-
 There was streaks of butter staining.  
 There was butter in the halls.  
 There was butter slowly draining  
@@ -13931,8 +14166,8 @@ As the smell began to grow -
 
 ... butter really have to go.'
 
+/r/AskReddit/comments/awglpf/whats_the_weirdestscariest_thing_youve_ever_seen/ehmrp27/
 ----
-
 When Little Timmy felt the itch  
 Of movement down below -  
 His magic wand appeared to twitch,  
@@ -13950,8 +14185,8 @@ Alas, it took his guts as well.
 
 And Timmy fucking died.  
 
+/r/AskReddit/comments/aveq9s/which_insanely_popular_or_successful_movie_you/ehf0fj2/
 ----
-
 'Perhaps I could listen to podcasts,' he spoke -  
 'Or go to the gym with the fittest of folk.  
 Perhaps I could run, or perhaps I could hike -  
@@ -13971,8 +14206,8 @@ well it's just...
 
 ... I don't want to,' he said.
 
+/r/AskReddit/comments/au7ypd/what_is_a_hobby_that_requires_little_to_no_money/eh6j5qc/
 ----
-
 'She is?' said I, and looked to where  
 There only sat an empty chair -  
 An empty space, just like before -  
@@ -13994,8 +14229,8 @@ They looked at me.
 
 They said: '... she's here.'
 
+/r/AskReddit/comments/atsj4h/teachers_of_reddit_what_was_the_most_annoying/eh3otz9/
 ----
-
 'Now action words are verbs, you see,  
 And nouns are names like 'bird' and 'bee',  
 Or 'cat' and 'dog', or 'house' and 'head',  
@@ -14026,8 +14261,8 @@ Or-'
 
 'POLO!' all replied.
 
+/r/AskReddit/comments/atsj4h/teachers_of_reddit_what_was_the_most_annoying/eh3klfn/
 ----
-
 A rhyme for one,  
 a rhyme for all -  
 For those who ask,  
@@ -14039,8 +14274,8 @@ But not for this.
 
 *But not for this.*
 
+/r/AskReddit/comments/atsj4h/teachers_of_reddit_what_was_the_most_annoying/eh3isrs/
 ----
-
 >My only regret is that I didn't tell him to fuck off.
 
 And later that night,  
@@ -14051,8 +14286,8 @@ He heard them again as they echoed anew...
 And restlessly wished that she'd just said *fuck you.*
 
 
+/r/AskReddit/comments/ati1tw/whats_your_fuck_this_i_quit_story/eh1c5si/
 ----
-
 Come on!' said the dentist,  
 'Come one and come all!  
 Come see what I'm seeing!' he started his call.  
@@ -14074,8 +14309,8 @@ He picked up his pliers.
 '... well let's get 'em out.'  
 
 
+/r/AskReddit/comments/asytc0/were_you_ever_that_1_in_1000000_if_so_whats_your/egy02ut/
 ----
-
 When something deep inside me drops -  
 My eyes turn off,  
 my hearing stops -  
@@ -14095,12 +14330,12 @@ I simply heave a sigh, and then -
 
 I turn me off and on again.  
 
+/r/AskReddit/comments/asytc0/were_you_ever_that_1_in_1000000_if_so_whats_your/egxy4nk/
 ----
-
 [removed]
 
+/r/AskReddit/comments/asytc0/were_you_ever_that_1_in_1000000_if_so_whats_your/egxx81s/
 ----
-
 You've never truly smelled the smell,  
 the misbegotten scent of hell,  
 the rancid, rotten, stinking sigh  
@@ -14108,8 +14343,8 @@ of salmon,
 ass,  
 and apple pie.
 
+/r/AskReddit/comments/ar4pe8/hotel_workers_of_reddit_what_is_the_worst_thing/egl7ti3/
 ----
-
 He looks at the bowl with a tear in his eye -  
 For all that he'd worked for was just slipping by.  
 'It's tragic,' he whispers, 'a sadness, a sin -  
@@ -14117,8 +14352,8 @@ But maybe, just *maybe*...'
 
 He puts it back in.  
 
+/r/AskReddit/comments/aqjj2c/what_is_good_for_only_a_minute/egh0nst/
 ----
-
 And deep inside him, down below,  
 His bowels move, his fluids flow,  
 His kidneys shift an inch or two,  
@@ -14139,8 +14374,8 @@ Until the *next* gigantic shit.
 
 
 
+/r/AskReddit/comments/aqjj2c/what_is_good_for_only_a_minute/egh02vr/
 ----
-
 He sighs in the stillness.  
 He sits on his seat.  
 The peace is perfection,  
@@ -14161,8 +14396,8 @@ The silence is broken.
 
 '... goddammit,' he sighs.
 
+/r/AskReddit/comments/aqjj2c/what_is_good_for_only_a_minute/eggxzdi/
 ----
-
 >The first thing you hear is the surface breaking and someone screaming at the edge of the pool.
 
 
@@ -14174,8 +14409,8 @@ And I'd linger for life for this life that I lack...
 
 But I lift up my head and the screaming is back.  
 
+/r/AskReddit/comments/aq9w8s/what_are_some_of_your_absolute_favourite_sounds/egevnx8/
 ----
-
 When Little Timmy had a dream,  
 He slowly, softly said -  
 'How truly lovely it would seem  
@@ -14199,8 +14434,8 @@ So Little Timmy tied a noose.
 And Timmy fucking died.  
 
 
+/r/AskReddit/comments/aq775f/whats_the_most_ridiculous_thing_you_fantasize/egecrng/
 ----
-
 I watch her there across the street.  
 I say: 'One day, my dear, we'll meet.'  
 
@@ -14210,8 +14445,8 @@ I know she will.
 
 I know she *will.*
 
+/r/AskReddit/comments/apfrp4/what_lifealtering_things_should_every_human/eg8lncb/
 ----
-
 'I love you, I love you, I love you,' she said.  
 'Wherever we are, or have been, or in bed.  
 I love you from here to the moon and the stars -  
@@ -14228,8 +14463,8 @@ I'll love you forever, through thick and through thin.
 
 And that's why I want you to *never* move in.'  
 
+/r/AskReddit/comments/apfrp4/what_lifealtering_things_should_every_human/eg8gck8/
 ----
-
 When Little Timmy lived alone,  
 He said with hope and glee:  
 'I love the place I call my own,  
@@ -14259,8 +14494,8 @@ And no one came.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/apfrp4/what_lifealtering_things_should_every_human/eg8f1jn/
 ----
-
 I went to Kyoto, and there I espied -  
 My mother and father and sister beside.  
 I saw my old teacher.  
@@ -14287,8 +14522,8 @@ I'm not going back.
 
 
 
+/r/AskReddit/comments/aorumk/hey_reddit_whats_the_strangest_coincidence_youve/eg3ik34/
 ----
-
 When Little Timmy went online  
 To play the latest hit -  
 He thought, perhaps, it might be fine  
@@ -14308,8 +14543,8 @@ And Timmy fucking died.
 
 
 
+/r/AskReddit/comments/aorumk/hey_reddit_whats_the_strangest_coincidence_youve/eg3ffl9/
 ----
-
 And so, he sent his dick to me,  
 The finest pic there was to see!  
 A shining scene that runs amok  
@@ -14334,8 +14569,8 @@ I see.
 
 I might be gay.
 
+/r/AskReddit/comments/aorumk/hey_reddit_whats_the_strangest_coincidence_youve/eg3e67f/
 ----
-
 'That's simply amazing!' he spoke with a sigh -  
 He laughed as he thought of apartments gone by.  
 'You might not believe this,' he said to her, slow -  
@@ -14347,8 +14582,8 @@ She whispered: '... *I know*.'
 
 ^^^:-l
 
+/r/AskReddit/comments/aorumk/hey_reddit_whats_the_strangest_coincidence_youve/eg3bu7f/
 ----
-
 When Little Timmy had an itch,   
 An itch he couldn't get -  
 He fret and so,  
@@ -14370,8 +14605,8 @@ But Timmy scratched a bit too deep.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/aogwys/what_is_a_sensation_that_you_cant_stand_even/eg1bzrb/
 ----
-
 There is  
 a hole  
 inside  
@@ -14395,8 +14630,8 @@ down...
 *inside.*
 
 
+/r/AskReddit/comments/aogwys/what_is_a_sensation_that_you_cant_stand_even/eg1b6hl/
 ----
-
 'Come on, come on,' said Miss Magee -  
 'There isn't time to play.  
 Get up from off the floor,' said she,  
@@ -14413,8 +14648,8 @@ She sadly shook her head.
 Our legs are *fucked*,' she said.
 
 
+/r/AskReddit/comments/aogwys/what_is_a_sensation_that_you_cant_stand_even/eg12avx/
 ----
-
 He stares at the thing where it caught and he sighs -  
 He frowns in his rage and he narrows his eyes -  
 He gathers his feelings.  
@@ -14424,8 +14659,8 @@ He knows what to do.
 
 '... *fuck you*.'
 
+/r/AskReddit/comments/aogwys/what_is_a_sensation_that_you_cant_stand_even/eg11ipz/
 ----
-
 And even though  
 I'll never know   
 the universe's size -  
@@ -14446,8 +14681,8 @@ but even so...
 
 there's only *one* of me.
 
+/r/AskReddit/comments/ao5ash/whats_the_biggest_lie_the_internet_has_created/efz26xm/
 ----
-
 I stared at the message  
 a second or two.  
 'There's singles,' it started,  
@@ -14461,8 +14696,8 @@ They never did find me.
 But maybe,  
 one day.  
 
+/r/AskReddit/comments/ao5ash/whats_the_biggest_lie_the_internet_has_created/efywt10/
 ----
-
 'And maybe, just *maybe*,' he said with a sigh -  
 'We might get along if we're willing to try.  
 We might do it finer -   
@@ -14481,8 +14716,8 @@ What say you?' he asked her.
 
 She said to him: '... no.'
 
+/r/AskReddit/comments/antk3m/whats_the_worst_lesson_someone_could_learn_from_a/efw6t13/
 ----
-
 'A well-fitting shirt can do wonders,' she sighed -  
 'A neat pair of jeans with a portion of pride -  
 A little endeavour of effort,' she said -  
@@ -14506,8 +14741,8 @@ He said to her softly:
 
 
 
+/r/AskReddit/comments/anh2fs/ladies_just_like_leggings_can_very_easily_attract/eftmjr3/
 ----
-
 'I think I've got herpes,' he said with a sigh.  
 He stood at the door with a tear in his eye.  
 The doctor replied with a shake of his head.  
@@ -14516,8 +14751,8 @@ He frowned at his patient.
 
 '... how *dare* you?' he said.
 
+/r/AskReddit/comments/andi27/what_is_the_most_hurtful_thing_a_medical/eftbmpp/
 ----
-
 And late at night, he lies in bed,  
 A thousand thoughts inside his head  
 That slowly wane away in sleep,  
@@ -14538,8 +14773,8 @@ He whispers: '... fuck.'
 
 
 
+/r/AskReddit/comments/an1oy1/what_was_the_dumbest_thing_you_ever_did_to_try/efqndw3/
 ----
-
 When Little Timmy did a flip,  
 But never had before -  
 He said: 'I'm feeling super-hip,  
@@ -14557,8 +14792,8 @@ But Timmy tried to jump a car.
 
 And Timmy fucking died.  
 
+/r/AskReddit/comments/an1oy1/what_was_the_dumbest_thing_you_ever_did_to_try/efqk4q2/
 ----
-
 'Another sleepless night,' he sighed,  
 And groaned with phony woe -  
 'I *think* too much,' he said with pride -  
@@ -14577,8 +14812,8 @@ smugly,
 died.
 
 
+/r/AskReddit/comments/amqm4b/what_is_considered_lazy_but_is_really/efo3rkf/
 ----
-
 When your world's a fabrication,  
 And your nights are drifting by -  
 When you're watched by all the nation,  
@@ -14600,8 +14835,8 @@ Then you say it so sincerely -
 
 *It ain't easy being green.*
 
+/r/AskReddit/comments/ampqke/if_you_could_remake_any_film_using_only_muppets/efo1ppx/
 ----
-
 She kissed me once and drew away -  
 At first, without a word to say.  
 But as she drifted off, apart,  
@@ -14613,8 +14848,8 @@ She said to me:
 
 ^^^^Fredo.
 
+/r/AskReddit/comments/amlmhb/redditors_with_toddlers_whats_the_most_recent/efndjrn/
 ----
-
 She lay on the floor in her sad little space -  
 Submersed in the water she'd poured on her face.  
 She watched and she wept as it silently spread.  
@@ -14623,8 +14858,8 @@ She stared at me sadly.
 
 '... how *could* you?' she said.  
 
+/r/AskReddit/comments/amlmhb/redditors_with_toddlers_whats_the_most_recent/efnbndn/
 ----
-
 'I've had up to *here,*' she spoke,  
 'With all of yours and you -  
 With all you anti-vaxxer folk,  
@@ -14640,8 +14875,8 @@ He whispered: 'Darling, please -
 I am not anti-vax,' he said,  
 'I'm simply... *pro-disease*.'  
 
+/r/AskReddit/comments/amg4pi/what_can_you_not_believe_we_still_have_to_deal/efma7oh/
 ----
-
 Oompa-loompa, doopity-doo,  
 Looks like it's time for a nibble or two.  
 Oompa-loompa, doopity-dee,  
@@ -14675,8 +14910,8 @@ Like the Oompa-loompas doopity-doo!
 
 Doopity-doo!
 
+/r/AskReddit/comments/amcc62/what_food_has_made_you_wonder_how_did_our/eflas73/
 ----
-
 See the lumpy bumpy clumps?  
 Crusty clod that slips and slumps?  
 Blocks and hunks and chunks and chips?  
@@ -14695,8 +14930,8 @@ Moldin' slowly, north to south?
 
 ... I'mma put that in my mouth.
 
+/r/AskReddit/comments/amcc62/what_food_has_made_you_wonder_how_did_our/efl86fr/
 ----
-
 They griped and they grimaced and grumbled and groaned -  
 They murmured and muttered and mumbled and moaned.  
 'Oh mother,' they whimpered, 'it's tragic, it's tough -  
@@ -14717,8 +14952,8 @@ She chewed in the silence.
 
 She whispered: '... okay.'
 
+/r/AskReddit/comments/amcc62/what_food_has_made_you_wonder_how_did_our/efl6xxj/
 ----
-
 Oompa-loompa, doopity-doo,  
 Don't be surprised when it happens to you.  
 Oompa-loompa, doopity-dee,  
@@ -14754,8 +14989,8 @@ Like the Oompa-loompas doopity-doo!
 Doopity-doo!
 
 
+/r/AskReddit/comments/am2bg8/what_dire_warning_from_your_parents_turned_out_to/efjdrf7/
 ----
-
 When Little Timmy went to bed  
 With dreams of evil joy -  
 'Behave yourself,' his mother said,  
@@ -14783,8 +15018,8 @@ She'd only keep a single youth.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/am2bg8/what_dire_warning_from_your_parents_turned_out_to/efj5268/
 ----
-
 'My namesa Mister Jar Jar Binks,  
 I come from Ol' Naboo -  
 I says *precisely* what I thinks,  
@@ -14803,8 +15038,8 @@ My namesa Mister Jar Jar Binks.
 I come from Ol' Naboo.'
 
 
+/r/AskReddit/comments/alprgd/you_are_given_300_million_to_make_a_movie_but_it/efgdn4o/
 ----
-
 So he wept with distress in the rain as he flew,  
 And he wiped at a tear for a moment or two,  
 For they just didn't know,  
@@ -14822,8 +15057,8 @@ Only him by himself.
 
 Only him all alone.
 
+/r/AskReddit/comments/aldjqh/what_kind_of_teenage_bullshit_probably_happened/efdqysv/
 ----
-
 >"Polyjuice Parties"
 
 'We really must be moving on,'  
@@ -14858,8 +15093,8 @@ And *that's* Professor Snape,' he cried -
 Said Crabbe/Hermione.
 
 
+/r/AskReddit/comments/aldjqh/what_kind_of_teenage_bullshit_probably_happened/efdi0h4/
 ----
-
 'Holy shit, holy *shit*, *holy shit*, *holy SHIT* -  
 She is totally *fucked*, she is *fucked*, this is it!  
 She is fucked and there's *nothing*,' he wondered with woe -  
@@ -14876,8 +15111,8 @@ So he gathered his thoughts and he said:
 '... she'll be *fine*.'
 
 
+/r/AskReddit/comments/al2zw8/medical_professionals_of_reddit_when_did_you_have/efakltp/
 ----
-
 >"How do you like that little dick?"
 
 'I do not like that little dick.  
@@ -14897,16 +15132,16 @@ It makes me sick.
 
 I do not like that little dick.'
 
+/r/AskReddit/comments/al0lp4/what_was_the_stupidest_thing_you_have_saiddone/efafuxm/
 ----
-
 'It's not just illegal,' he whispered with dread,  
 'It's totally *double-illegal*,' he said.  
 'I'd send you to prison,' he pondered with doubt -  
 
 '... but each of them cancels the other one out.'
 
+/r/AskReddit/comments/akpt1d/ladies_whats_the_weirdest_fetish_a_guy_has/ef79r93/
 ----
-
 And he sat there, so excited,  
 So exuberant to see -  
 So devotedly delighted  
@@ -14928,8 +15163,8 @@ And he whimpered and lamented,
 For it simply... wasn't there.  
 
 
+/r/AskReddit/comments/ako39x/redditors_with_a_95_job_in_a_cubicle_how_do_you/ef6xgpx/
 ----
-
 And he sorted all her panties,  
 All the dirty,  
 all the clean -  
@@ -14952,8 +15187,8 @@ When he'd twisted, wrung and wrangled -
 
 Then he had a bit of bleach.  
 
+/r/AskReddit/comments/akd2te/what_are_some_girl_secrets_guys_dont_know_about/ef4hdpj/
 ----
-
 Out it comes from down below -  
 Do not ask me,  
 I don't know.  
@@ -14964,8 +15199,8 @@ Sometimes, sadly...
 
 ... things just gush.  
 
+/r/AskReddit/comments/akd2te/what_are_some_girl_secrets_guys_dont_know_about/ef4h90d/
 ----
-
 'You could stay here,' she softly said,  
 'Although there's only one small bed,  
 And not a couch,  
@@ -14986,8 +15221,8 @@ She closed her eyes and then...
 
 I left.  
 
+/r/AskReddit/comments/akbzuv/what_are_some_guy_secrets_girls_dont_know_about/ef3qzth/
 ----
-
 I would shake off wishful thinking -  
 I would study hard at school -  
 And I'd never care for drinking,  
@@ -15017,8 +15252,8 @@ or just maybe...
 
 I would do it all the same.  
 
+/r/AskReddit/comments/ak0orj/if_you_were_given_the_chance_to_start_your_life/ef0xdz3/
 ----
-
 "You can call me for a quicky",  
 Reads the writing on the wall -  
 And the handle's sorta sticky,  
@@ -15048,8 +15283,8 @@ but not forgotten.
 
 How I love my mobile phone.
 
+/r/AskReddit/comments/ajzwg7/what_was_very_popular_in_the_90s_and_almost/ef0mwxm/
 ----
-
 And at the store we stopped to choose  
 A film to frighten, fret, amuse,  
 A case to hold inside our hands,  
@@ -15066,8 +15301,8 @@ Alas.
 
 Alas, we stop no more.
 
+/r/AskReddit/comments/ajzwg7/what_was_very_popular_in_the_90s_and_almost/ef0j0cw/
 ----
-
 He picked his post.  
 He clicked the thread.  
 He stopped to read the words it said.   
@@ -15075,8 +15310,8 @@ He made a face, a sigh, a frown.
 
 He slouched a little lower down.
 
+/r/AskReddit/comments/aj0r02/what_is_an_underrated_way_of_improving_your/eese7po/
 ----
-
 >The simulation we live in was done by an Alien Overlord in Junior High the night before with was due...
 
 'Oh buddy,' he spoke, with a shake of his head,  
@@ -15106,8 +15341,8 @@ I give it F minus.
 
 Would not recommend.'
 
+/r/AskReddit/comments/aiznfj/what_shouldnt_exist_but_does/ees905z/
 ----
-
 'The pure and perfect pick, the post,  
 The post I love to read the most,  
 The post I love to pick!' he said.  
@@ -15116,8 +15351,8 @@ He read the words.
 
 He closed the thread.  
 
+/r/AskReddit/comments/aiajz0/paramedics_of_reddit_whats_the_most_fucked_up/eemvcuu/
 ----
-
 And somewhere,  
 and somewhere,  
 he woke from his sleep -  
@@ -15127,8 +15362,8 @@ A message that travelled through space and through time!
 But Sprog couldn't paint,  
 so he just wrote a rhyme.
 
+/r/pics/comments/ahmq4d/bit_shitty_but_i_painted_the_woman_who_painted/eeg8g9h/
 ----
-
 'But why do I do it,  
 and what do I do,  
 and where did I come from,  
@@ -15149,8 +15384,8 @@ well it's only...
 
 ... I don't understand.'
 
+/r/AskReddit/comments/ahj7n3/what_do_you_genuinely_just_not_understand/eefguov/
 ----
-
 There was staining on the stripping.  
 There was smearing on the door.  
 There were drops and they were dripping  
@@ -15169,8 +15404,8 @@ And she whispered:
 '... holy *shit.*'
 
 
+/r/AskReddit/comments/ahj7n3/what_do_you_genuinely_just_not_understand/eefeu7d/
 ----
-
 Depends how you see it.  
 
 You might look around,  
@@ -15193,8 +15428,8 @@ It's all up to you.
 
 
 
+/r/AskReddit/comments/ahj7n3/what_do_you_genuinely_just_not_understand/eefdvdj/
 ----
-
 I waited.  
 I waited.  
 I waited some more.  
@@ -15221,8 +15456,8 @@ I waited for longer.
 
 I'm waiting here still.
 
+/r/AskReddit/comments/ahan8g/what_is_the_shittiest_advice_youve_ever_gotten/eedk7g7/
 ----
-
 You're cool.  
 You're cute.  
 You're kind.  
@@ -15241,8 +15476,8 @@ You're strange.
 
 But I am too.
 
+/r/AskReddit/comments/agnh1o/what_exists_for_the_sole_purpose_of_pissing/ee88oc3/
 ----
-
 The admins were reading -  
 They clicked on the thread -  
 'A post of delight and excitement!' they said.  
@@ -15252,8 +15487,8 @@ They stopped at his comment.
 
 They said to him: '... oof.'  
 
+/r/AskReddit/comments/afzfa7/admins_of_reddit_whats_your_favorite_subreddit/ee2zan5/
 ----
-
 They lay and relaxed in contentment and read -  
 Just him and the love of his life on their bed.  
 They stared at the sun as it started to rise.  
@@ -15262,8 +15497,8 @@ She sneezed in the silence.
 
 He narrowed his eyes.
 
+/r/AskReddit/comments/afljw6/whats_the_most_im_turning_into_my_parents_moment/ee00z05/
 ----
-
 I stared in the mirror.  
 I studied my eyes.  
 The depth of my wrinkles,  
@@ -15278,8 +15513,8 @@ I whispered:
 '... I'm dad.'  
 
 
+/r/AskReddit/comments/afljw6/whats_the_most_im_turning_into_my_parents_moment/edzqewm/
 ----
-
 >C) Other teeth.
 
 Crunching, munching, chomp and chew -  
@@ -15298,8 +15533,8 @@ Up and down and underneath -
 
 Floss between my teeth with teeth.  
 
+/r/AskReddit/comments/af89qi/teachers_of_reddit_what_is_the_smartestmost/edwy1kw/
 ----
-
 When Little Timmy pushed his hand  
 Between the weights a while -  
 He pulled it out and watched them land,  
@@ -15317,8 +15552,8 @@ But Timmy wasn't quick enough.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/af8ytz/what_was_the_most_unsafe_thing_youve_seen_someone/edwu20n/
 ----
-
 'Reddit *needs* you,' someone pled -  
 'Needs you where you are,' they said.  
 'Needs you here and being you -  
@@ -15337,8 +15572,8 @@ go...'
 
 ^^^^:(
 
+/r/AskReddit/comments/af3x54/what_do_you_think_is_the_single_greatest/edvmri5/
 ----
-
 A purple man in suit of blue,  
 Beside not one,   
 not one,  
@@ -15359,8 +15594,8 @@ And why and how and who and when...
 
 Until she woke me up again.  
 
+/r/AskReddit/comments/aekrba/redditors_with_sos_who_talk_in_their_sleep_what/edqsodl/
 ----
-
 'Oh I'm *sorry*,' he said,  
 'Did I keep you awake?  
 Did I shatter your sleep  
@@ -15374,8 +15609,8 @@ with a sigh:
 
 
 
+/r/AskReddit/comments/ae6vt5/whats_a_highly_underrated_advantage_of_living/ednlm9v/
 ----
-
 There was smears and there was staining.   
 There was garbage in the halls.  
 There were rugs in need of draining.  
@@ -15398,8 +15633,8 @@ But I didn't stop to clean it,
 
 
 
+/r/AskReddit/comments/ae6vt5/whats_a_highly_underrated_advantage_of_living/ednisgn/
 ----
-
 'I'm a cowboy,' he said,  
 with a shake of his head,  
 and a shake of his head and a smile -  
@@ -15422,8 +15657,8 @@ and my video's in,
 and my roommates, my roommates are... back.'  
 
 
+/r/AskReddit/comments/advdqm/whats_the_most_fucked_up_shit_youve_walked_into/edl19vx/
 ----
-
 And as I went to lift it out,  
 I paused a while to think in doubt,  
 For who was *I* to stop her there -  
@@ -15442,8 +15677,8 @@ She whispered: 'No. I'm almost done.'
 
 
 
+/r/AskReddit/comments/adth5w/what_was_your_i_cant_believe_this_is_happening/edklvel/
 ----
-
 It comes for one,  
 but not for two,  
 But does for me,  
@@ -15466,8 +15701,8 @@ and not for you.
 
 
 
+/r/AskReddit/comments/adgvmt/people_who_honk_in_traffic_jams_what_are_you/edi2q8d/
 ----
-
 'What brought you here?' you said to me.  
 You made the perfect sight to see.  
 And that's about the time I knew.  
@@ -15476,8 +15711,8 @@ I answered: 'fate.'
 
 You said: '... me too.'  
 
+/r/AskReddit/comments/ad5zd1/reddit_what_moment_you_realize_you_were_in_love/edex4f9/
 ----
-
 He opened the diaper and frowned with a sigh -  
 He stared at the contents and whispered: '... but why?  
 I don't and I can't understand it,' he said.  
@@ -15486,8 +15721,8 @@ He looked at his baby.
 
 'This just... isn't red.'  
 
+/r/AskReddit/comments/ad5ika/youre_in_a_world_where_everything_is_the_same_but/edeo4gs/
 ----
-
 I do what I want to.  
 I am who I'll be.  
 I dress like I want,  
@@ -15498,8 +15733,8 @@ With some laughter and luck.
 As long as I'm happy,  
 I don't give a fuck.
 
+/r/AskReddit/comments/acr5w9/people_who_work_in_high_class_restaurants_and/edamdj7/
 ----
-
 Do not leave your kids behind.  
 Should you do it, you shall find  
 Children left to wander by  
@@ -15527,8 +15762,8 @@ Kids get et.
 
 
 
+/r/AskReddit/comments/acr5w9/people_who_work_in_high_class_restaurants_and/edam440/
 ----
-
 'This cream,' she explained with a shake of her head -  
 'Is burned and I simply can't take it,' she said.  
 'I saw it and knew there was something amiss -  
@@ -15543,16 +15778,16 @@ She turned from her waiter.
 
 He whispered: '... fuck you.'   
 
+/r/AskReddit/comments/acr5w9/people_who_work_in_high_class_restaurants_and/edajwki/
 ----
-
 On hole, I do not speeking gud.  
 But if I cud do gud I wud.  
 I haf bin speeking rong since yoof.  
 
 I only blayme my salf in troof.
 
+/r/AskReddit/comments/ac3z4o/if_0_is_entirely_evil_and_100_is_entirely_good/ed5jt0f/
 ----
-
 I smiled to read the words he wrote -  
 his lovely line,   
 the nicest note  
@@ -15562,8 +15797,8 @@ I wrote him back.
 
 '... I fukd ur mom.'
 
+/r/AskReddit/comments/ac3z4o/if_0_is_entirely_evil_and_100_is_entirely_good/ed5h686/
 ----
-
 My girl is fine,  
 my girl is fair.  
 My girl is short with auburn hair.  
@@ -15590,8 +15825,8 @@ She's all I need.
 
 ^^^... ^^^she ^^^don't ^^^exist.
 
+/r/AskReddit/comments/ac3z4o/if_0_is_entirely_evil_and_100_is_entirely_good/ed5gasv/
 ----
-
 If when they take the chance to tease,  
 To run their meaner wits -  
 Or swiftly come to such with ease,  
@@ -15608,8 +15843,8 @@ Then who, I wonder, truly knows
 Just what they think of *you*.
 
 
+/r/AskReddit/comments/abt949/what_small_thing_makes_you_automatically_distrust/ed2zb3b/
 ----
-
 The finest thoughts are thought, I think,  
 Upon the seat that's near the sink,  
 Above the white and shiny throne  
@@ -15626,8 +15861,8 @@ To feel a smile upon my face.
 
 The toilet is my perfect place.
 
+/r/AskReddit/comments/absmyh/whats_the_laziest_thing_you_do_fairly_frequently/ed2yiz9/
 ----
-
 I will not give.  
 I will not go.  
 I will not drop the bait below.  
@@ -15653,8 +15888,8 @@ I must not poop.
 
 It's all I've got.
 
+/r/AskReddit/comments/ablzuq/people_who_havent_pooped_in_2019_yet_why_are_you/ed1jyd7/
 ----
-
 'It won't be me,'  
 you always said.  
 You used to smile  
@@ -15666,8 +15901,8 @@ for sure because -
 
 But then it was.  
 
+/r/AskReddit/comments/abi32n/medical_professionals_of_reddit_what_are_some/ed0t0ru/
 ----
-
 'Desert-throated,  
 dry and dusty?  
 Mouth unmoistened,  
@@ -15687,8 +15922,8 @@ Tell your son, and tell your daughter!
 
 Make a choice and make it water!'
 
+/r/AskReddit/comments/abhgc0/if_someone_borrowed_your_body_for_a_week_what/ed0lrvt/
 ----
-
 His mouth was dry.  
 His jaw was sore.  
 He heaved a sigh.  
@@ -15698,8 +15933,8 @@ He drank a cup.
 
 He picked a second cracker up.  
 
+/r/AskReddit/comments/abhgc0/if_someone_borrowed_your_body_for_a_week_what/ed0jrb4/
 ----
-
 'Good heavens, man,' he said with cheer -  
 'Who might have left this chapstick here?  
 I want to sit, remove it quick!'  
@@ -15707,8 +15942,8 @@ I want to sit, remove it quick!'
 
 I whispered sadly: '... that's my dick.'  
 
+/r/AskReddit/comments/abhgc0/if_someone_borrowed_your_body_for_a_week_what/ed0j872/
 ----
-
 I vacuumed the carpets.  
 I swept all the floors.  
 I polished the handles on all of the doors.  
@@ -15719,8 +15954,8 @@ I looked at my wristwatch.
 
 It said: *half past nine.*
 
+/r/AskReddit/comments/ab8jf8/reddit_what_are_some_fun_things_to_do_on_new/ecyxjy5/
 ----
-
 A little bit of being kind -  
 A tiny open door -  
 A nicer slice of peace of mind  
@@ -15737,8 +15972,8 @@ You'll find it changes you.
 ^^^:)
 
 
+/r/AskReddit/comments/ab8jf8/reddit_what_are_some_fun_things_to_do_on_new/ecysqpw/
 ----
-
 When the night is yours to treasure -  
 When your time is up to you -  
 Make the query,  
@@ -15779,8 +16014,8 @@ You could do it all, my brother!
 ... or just stay on reddit, yo.
 
 
+/r/AskReddit/comments/ab8jf8/reddit_what_are_some_fun_things_to_do_on_new/ecyi4tq/
 ----
-
 my name is Dog  
 an wen i choo  
 or liks a peece   
@@ -15791,8 +16026,8 @@ i gets a shok.
 
 but im okay.
 
+/r/AskReddit/comments/ab5n37/what_is_the_funniest_thing_you_overheard_from/ecycgom/
 ----
-
 She answered the phone with her usual cheer -  
 The mother he treasured and cherished to hear.  
 But now he was silent, his mind full of dread.  
@@ -15805,8 +16040,8 @@ But now he was silent, his mind full of dread.
 
 ^^^:(  
 
+/r/AskReddit/comments/ab5n37/what_is_the_funniest_thing_you_overheard_from/ecy6ut4/
 ----
-
 In silence, he paused at the words that I said.  
 He blinked at me slowly.  
 He just... shook his head.  
@@ -15816,8 +16051,8 @@ I pondered a moment.
 
 I whispered: '... oh no.'
 
+/r/AskReddit/comments/aawsbz/whats_the_most_awkward_situation_youve_ever_been/ecw7kkt/
 ----
-
 Sick of sticking fecal matter?  
 Lumps of crusty bottom batter?  
 Streaking smears and spots and spatters,  
@@ -15842,8 +16077,8 @@ Leave your path, and choose another!
 Buy yourself a bidet, brother.
 
 
+/r/AskReddit/comments/aav49q/what_household_item_can_vastly_improve_your/ecvsjew/
 ----
-
 Remember, you thought they would think you a fool?  
 They'd think you were witless, unwise and uncool?  
 They'd think you were simple, or stupid and small?  
@@ -15854,8 +16089,8 @@ Ever.
 
 At all.  
 
+/r/AskReddit/comments/aakixx/what_are_the_most_important_life_lessons_you_have/ect8dxw/
 ----
-
 >There was one valuable lesson I took away from it: if you like Internet porn and boats, never get married.
 
 
@@ -15879,8 +16114,8 @@ I want you to wed.
 ... but porn is just too fucking awesome,' he said.  
 
 
+/r/AskReddit/comments/aal26n/with_all_the_talk_about_walking_out_of_holmes_and/ect730r/
 ----
-
 'All right then! I did it!  
 I pooped in your home!  
 I pooped on your couch  
@@ -15892,8 +16127,8 @@ His father responded:
 
 '... you're still pooping now.'
 
+/r/AskReddit/comments/aahxn6/whats_the_scariest_thing_that_happened_to_you/ecsl2ag/
 ----
-
 But you were my mother.  
 I loved you before.  
 But you were my mother.  
@@ -15908,8 +16143,8 @@ It should have been you.
 
 
 
+/r/AskReddit/comments/aahxn6/whats_the_scariest_thing_that_happened_to_you/ecskg2j/
 ----
-
 A turning,  
 a churning  
 of spiraling soup -  
@@ -15923,8 +16158,8 @@ The heavens are silent.
 I pull on the glove.  
 
 
+/r/AskReddit/comments/aahxn6/whats_the_scariest_thing_that_happened_to_you/ecsittf/
 ----
-
 And there, in the silvery light of a screen -  
 The lines of a rhyme that was shared in-between -  
 A smile for a while in the style of a Sprog.  
@@ -15935,8 +16170,8 @@ A raise of a glass and a toast to the 'nog.
 
 ^^^:)
 
+/r/AskReddit/comments/aabvsh/what_is_a_good_weakness_to_mention_on_a_job/ecrauu5/
 ----
-
 'An excellent question,' she said in reply -  
 'I'm usually drunk, and I'm frequently high.  
 I waste all my time till the end of the day.  
@@ -15960,8 +16195,8 @@ He wrote:
 
 *Honesty.*
 
+/r/AskReddit/comments/aabvsh/what_is_a_good_weakness_to_mention_on_a_job/ecr0zdy/
 ----
-
 You have not heard -  
 You may not know -  
 That China isn't glued below.  
@@ -15981,8 +16216,8 @@ Just thirteen *thousand* miles.
 
 That's all.  
 
+/r/AskReddit/comments/aa9yet/ok_redditors_wrong_answers_only_what_is_the/ecqmkgf/
 ----
-
 He stared at the wall  
 and he silently sighed.  
 'Excuse me,' he called,  
@@ -15994,8 +16229,8 @@ He waited a moment.
 
 '... you're *shitting* me, right?'
 
+/r/AskReddit/comments/aa9yet/ok_redditors_wrong_answers_only_what_is_the/ecqme9i/
 ----
-
 'This lovely stately house,' said she,  
 'Is built on sex and revelry.  
 I paid for *every* inch of it  
@@ -16017,8 +16252,8 @@ And it's for *you*,' she said with cheer.
 
 Her mother said: '... it's lovely, dear.'
 
+/r/AskReddit/comments/aa1bx1/you_are_offered_10_million_dollars_but_you_have/ecovjx6/
 ----
-
 A curling, unending crescendo of pain -  
 A babble, a bellow, a din of disdain -  
 A shrieking of terror,  
@@ -16028,8 +16263,8 @@ They listened with horror.
 
 They whispered: '... it's *great*.'
 
+/r/AskReddit/comments/a9p87n/parents_now_that_its_the_morning_after_what_do/eclxoy8/
 ----
-
 My handsome boy!' she said to me -    
 'My son!' she spoke with pride -  
 'There's other boys, but *you're*,' said she,  
@@ -16051,8 +16286,8 @@ I left her home with glee.
 Alas, I found a fuck-ton who  
 Were handsomer than me.  
 
+/r/AskReddit/comments/a9oqxi/whats_the_adult_version_of_there_is_no_santa_claus/eclejz4/
 ----
-
 He wakes,  
 he takes a look below.  
 A place,  
@@ -16064,8 +16299,8 @@ But then it passed.
 
 He starts to smile.  
 
+/r/AskReddit/comments/a9lxaz/how_would_you_feel_if_you_woke_up_right_now_and/eckyr4x/
 ----
-
 There's nothing as lovely -  
 As flawless and fine -  
 As finding yourself in the fold of a spine.  
@@ -16082,8 +16317,8 @@ I'm hooked on the look of a book on a shelf!
 
 
 
+/r/AskReddit/comments/a9ffdb/what_has_been_the_best_corporate_darwin_award_a/ecjcrlf/
 ----
-
 You're cute  
 and cool  
 and tender too.  
@@ -16097,8 +16332,8 @@ You're perfect.
 
 Never change.
 
+/r/AskReddit/comments/a9dnxk/whats_the_most_kindbeautiful_thing_youve/eciuf6u/
 ----
-
 And then, my heart was filled with dread  
 To hear the awful things she said -  
 To truly know -  
@@ -16111,8 +16346,8 @@ To where she lay below me, south -
 
 I farted in her open mouth.  
 
+/r/AskReddit/comments/a9bx21/whats_the_most_hurtful_thing_youve_overheard/ecib8v7/
 ----
-
 'I laughed at your jokes,' she explained with a sigh -  
 'I gave you a smile and a wink of an eye.  
 I lowered the zip on my top by two-thirds!  
@@ -16120,8 +16355,8 @@ What *more* are you needing?'
 
 I said: 'USE YOUR *WORDS.*'
 
+/r/AskReddit/comments/a94cvk/what_perceived_benefit_of_the_opposite_sex_do_you/ecgywmd/
 ----
-
 He silently stands with a tear in his eye -  
 A frown on his face and a sob in his sigh -  
 A stare of dismay at the thing in his hand.  
@@ -16137,8 +16372,8 @@ He speaks without mercy:
 
 'YOU'VE BEEN A *BAD BOY.*'
 
+/r/AskReddit/comments/a94beh/if_santas_lump_of_coal_was_updated_for_the_modern/ecgq8vr/
 ----
-
 'My father gave me this in youth -  
 A drop of sun,  
 a taste of truth,  
@@ -16161,8 +16396,8 @@ And so, directions:
 
 open can.  
 
+/r/AskReddit/comments/a8xgq2/hi_reddit_what_some_good_passive_aggressive/ecf7cvl/
 ----
-
 I said: 'I need to make this clear -  
 I'm *in* my girlfriend, mother dear.  
 I have bestowed a piece of me  
@@ -16187,8 +16422,8 @@ She leaned in close.
 She said: '... I know.'
 
 
+/r/AskReddit/comments/a8tk9u/parents_who_knock_on_their_kids_doors_and_then/ece5hw7/
 ----
-
 I do not want to go to bed.  
 I will not lay my weary head  
 Upon the linen pillow there.  
@@ -16214,8 +16449,8 @@ not...
 
 ^^^^zzzz...
 
+/r/AskReddit/comments/a8syp5/why_are_you_scouring_reddit_right_now_instead_of/ecdq7y8/
 ----
-
 Two old legs with creaking knees -  
 Thumbs that crack, and lungs that wheeze -  
 Arms that shake, and eyes that blur -  
@@ -16232,8 +16467,8 @@ One solution:
 
 Don't get old.
 
+/r/AskReddit/comments/a8ky2s/youre_offered_1_billion_dollars_but_you_have_10/ecc85fy/
 ----
-
 When Little Timmy made his pick  
 And chose to take the dough -  
 He picked it fast,  
@@ -16255,8 +16490,8 @@ And Timmy fucking died.
 
 
 
+/r/AskReddit/comments/a8ky2s/youre_offered_1_billion_dollars_but_you_have_10/ecc4svq/
 ----
-
 They placed aside their cups of tea -  
 They stood and stared across the sea -  
 They sighed and said,  
@@ -16271,8 +16506,8 @@ their cricket bat -
 And said: '... we'd better see to that.'
 
 
+/r/AskReddit/comments/a8jp4a/nonbrits_of_reddit_what_is_your_opinion_of_brexit/ecblrdv/
 ----
-
 I patiently shave all the hairs in my crack.  
 I shave till I'm smooth from the front to the back.  
 I shave and I shower the foam from my cheeks.  
@@ -16281,8 +16516,8 @@ I stare at my anus.
 
 'HOW DARE YOU?' it speaks.  
 
+/r/AskReddit/comments/a8iwjh/why_are_my_farts_louder_after_shaving_my_ass_hair/ecbfsl4/
 ----
-
 'Remember,' he muttered,  
 and climbed in his car -  
 'You're off to the market,  
@@ -16294,8 +16529,8 @@ He looked at his office.
 
 He whispered: '... oh shit.'
 
+/r/AskReddit/comments/a8ekca/whats_something_weirdfunnyembarrassing_youve_done/ecaayjl/
 ----
-
 'My darling baby does not sleep  
 Unless you're bleating like a sheep,  
 Or sorting stories for the stars  
@@ -16327,8 +16562,8 @@ I did not go.
 
 I took the fucking money though.
 
+/r/AskReddit/comments/a89fcr/babysitters_of_reddit_what_were_the_weirdest/ec9gx7m/
 ----
-
 She sang with the voice of an angel above -  
 A bold little ballad of beauty and love -  
 A song to enjoy in a sweet summer spot -  
@@ -16336,8 +16571,8 @@ She sang with a passion.
 
 They said: '... could you not?'
 
+/r/AskReddit/comments/a89fcr/babysitters_of_reddit_what_were_the_weirdest/ec9btli/
 ----
-
 'Oh peerless unparalleled poppa of mine -  
 Remember December, the year ninety-nine?  
 The frost on the windows, the winterfest prom?  
@@ -16345,8 +16580,8 @@ Oh what were you doing?'
 
 He whispered: '... your mom.'
 
+/r/AskReddit/comments/a897uw/people_who_were_alive_then_what_were_you_doing/ec9836t/
 ----
-
 And though I strained with all my might,  
 I would not, could not hear the fight.  
 I would not, could not join the fun -  
@@ -16361,8 +16596,8 @@ I whispered softly:
 
  '... *fuck you, dad*.'   
 
+/r/AskReddit/comments/a85w78/whats_the_most_strangely_unique_punishment_you/ec8ho9k/
 ----
-
 He stood at the door and he listened with pride -  
 'Oh where can it *be*?' came a voice from inside.  
 'It could be, it should be, it *has* to be here -  
@@ -16379,8 +16614,8 @@ Tomorrow.
 
 Perhaps.   
 
+/r/AskReddit/comments/a85w78/whats_the_most_strangely_unique_punishment_you/ec8gqar/
 ----
-
 'The sandwich that I've brought with me  
 Is made with ham and bread -  
 I fetched it from an eatery -  
@@ -16399,8 +16634,8 @@ For truth be told, I've nibbled some.'
 He said: '... it isn't good.'  
 
 
+/r/AskReddit/comments/a7nwe2/what_food_can_you_bring_to_an_office_holiday_part/ec4s1jm/
 ----
-
 She looked at the box with a sigh of dismay -  
 'You could have just taken the sticker away.  
 You could have just hidden it easily, bro.'  
@@ -16409,8 +16644,8 @@ He said to her softly:
 
 '... I *want* them to know.'  
 
+/r/AskReddit/comments/a7nwe2/what_food_can_you_bring_to_an_office_holiday_part/ec4ombn/
 ----
-
 'I *say*,' said he,  
 'my day' said he,  
 'is quite sincerely sure to be -  
@@ -16430,8 +16665,8 @@ the time is *now*...
 
 
 
+/r/AskReddit/comments/a72nr4/whats_something_small_you_can_start_doing_today/ec034sj/
 ----
-
 And every night, before I sleep -  
 Before the gentle dreams I keep  
 Inside my dozing, drifting mind  
@@ -16455,8 +16690,8 @@ There's the snooze.
 I whisper: '... fuck.'
 
 
+/r/AskReddit/comments/a72nr4/whats_something_small_you_can_start_doing_today/ec01w6w/
 ----
-
 Although it's been pleasing -  
 Although it's been fun -  
 And though I am grateful for all that you've done -  
@@ -16478,8 +16713,8 @@ And that's why I'm ending my contract.
 
 I quit.
 
+/r/AskReddit/comments/a6vjd6/whats_your_sugarmama_story/ebyqjhf/
 ----
-
 'My grandma ended late last year -  
 I grieved.  
 I mourned.  
@@ -16504,8 +16739,8 @@ I need another day, that's it.'
 
 His boss replied: '... you're full of shit.'  
 
+/r/AskReddit/comments/a6rmd5/what_is_the_craziest_excuse_someone_has_given_you/ebxt1fb/
 ----
-
 I have not, do not, did not read -  
 I did not, do not, no indeed.  
 And though I didn't, no I don't -  
@@ -16526,8 +16761,8 @@ I click agree.
 
 
 
+/r/AskReddit/comments/a6qvhq/whats_one_rule_everyone_breaks/ebxqbww/
 ----
-
 When Little Timmy talked a lot  
 Of winning fights with glee -  
 He thought it pretty cool.
@@ -16555,8 +16790,8 @@ A lot.
 
 And Timmy fucking died.  
 
+/r/AskReddit/comments/a6rc08/everyone_who_has_been_in_a_fight_shares_their/ebxj6ig/
 ----
-
 'I fought in the Congo.  
 I fought in Iran.  
 I fought in the jungle, Iraq and Sudan.  
@@ -16569,8 +16804,8 @@ But this,' he opined, and he paused for an age.
 
 He silently stared at his kid on the stage.   
 
+/r/AskReddit/comments/a6fexg/what_was_the_worst_live_performance_youve_ever/ebuvkau/
 ----
-
 Oh Leto,  
 Leto,  
 leave me be.  
@@ -16595,8 +16830,8 @@ You do not rock.
 
 You are, in fact, a massive cock.
 
+/r/AskReddit/comments/a6fexg/what_was_the_worst_live_performance_youve_ever/ebuib66/
 ----
-
 I often stop a time or two  
 At where you used to be -  
 And when I do  
@@ -16625,8 +16860,8 @@ A friend.
 
 
 
+/r/AskReddit/comments/a6env3/how_have_you_bought_happiness_with_money/ebufw0m/
 ----
-
 I ain't exactly fresh with youth -  
 I'm not so young,  
 to tell the truth -  
@@ -16647,8 +16882,8 @@ I'm not so young.
 
 It's not so bad.  
 
+/r/AskReddit/comments/a5ualx/whats_not_as_bad_as_everyone_says/ebpt4q6/
 ----
-
 When next you feel the eerie feel,  
 Remember this -  
 the feeling's real.  
@@ -16661,14 +16896,14 @@ Remember -
 
 nope the fuck away.  
 
+/r/AskReddit/comments/a5hsxb/what_you_know_what_just_to_be_safe_thing_you_did/ebn38a5/
 ----
-
 The truth is in the point of view -  
 It's *good* for you  
 or good for *you*.  
 
+/r/AskReddit/comments/a56xhu/what_are_some_things_that_sound_like_compliments/ebkt28l/
 ----
-
 Some heroes wear leather.  
 Some heroes wear hats.  
 Some heroes wear capes and pretend that they're bats.  
@@ -16684,8 +16919,8 @@ He does what he can.
 
 My god, what a man.
 
+/r/AskReddit/comments/a4r4yz/whats_your_greatest_accomplishment_that_you_cant/ebhea47/
 ----
-
 And it isn't enough to imagine him near  
 With the phone in his hand and the voice in his ear,  
 And the words that I wanted, I needed to say -  
@@ -16693,8 +16928,8 @@ And it isn't enough,
 but it is,  
 in a way.  
 
+/r/AskReddit/comments/a4mc2t/when_did_your_feeling_about_something_is_very/ebg63b8/
 ----
-
 Once upon a classroom dreary, while he pondered lessons weary,  
 Over many a quaint and curious textbook of forgotten lore -  
 There he pondered, nearly napping, whereupon there came a tapping,  
@@ -16717,8 +16952,8 @@ And 'tis said he still is going, gone beyond that classroom door -
 For they saw him - nevermore.
 
 
+/r/AskReddit/comments/a4le1m/deaf_people_of_reddit_when_did_you_find_out_that/ebfxj95/
 ----
-
 He clicks upon the perfect site,  
 Content to pick himself a thread  
 To smile and while away the night  
@@ -16740,8 +16975,8 @@ He shuts his eyes.
 
 He signs: '... oh *no*.'
 
+/r/AskReddit/comments/a4le1m/deaf_people_of_reddit_when_did_you_find_out_that/ebfopsy/
 ----
-
 my name is Cat,  
 an even tho  
 insyde of me  
@@ -16753,8 +16988,8 @@ he say 'is you!'
 
 he pet my hed.   
 
+/r/AskReddit/comments/a3oy8a/what_is_something_that_makes_you_smile_every_time/eb8jg1m/
 ----
-
 She sits alone inside her room -  
 A shadowed shape, a shade in gloom -  
 A place, a space she calls her own -  
@@ -16767,8 +17002,8 @@ She ponders where and who and how:
 
 '... yo, I'mma kill my grammy now.'
 
+/r/AskReddit/comments/a3cs04/what_is_your_slutty_story_that_you_wont_even_tell/eb5x1md/
 ----
-
 'I don't have regret for the things that I did -  
 The stupid decisions I made as a kid.  
 Not always the smartest -  
@@ -16788,8 +17023,8 @@ and some were a fall -
 
 I'd only regret doing *nothing* at all.'  
 
+/r/AskReddit/comments/a2bpqe/which_is_that_one_thing_you_still_regret_doing_it/eax030i/
 ----
-
 My name is Joe,  
 I have one shoe.  
 I don't have four,  
@@ -16820,8 +17055,8 @@ My name is Joe.
 It gets me where  
 I want to go.  
 
+/r/AskReddit/comments/a21wl9/what_is_the_weirdest_thing_you_have_ever_seen_a/eauretg/
 ----
-
 > But even if she was telling the truth, why the hell would you buy a zucchini someone else bit into?!
 
 She stood and she stared at the end of the aisle -  
@@ -16845,8 +17080,8 @@ She bought the zucchini.
 
 I still don't know why.
 
+/r/AskReddit/comments/a21wl9/what_is_the_weirdest_thing_you_have_ever_seen_a/eauqbd9/
 ----
-
 When she's scootin' under cover,  
 And she's stumpin' to the D -  
 She's the hottest little lover  
@@ -16862,8 +17097,8 @@ She's my pretty amputee -
 And she might be mostly missin',  
 But she's more than that to me.   
 
+/r/AskReddit/comments/a1n8rb/people_who_have_had_sex_with_someone_with_a/earsp52/
 ----
-
 Go do what you want to!  
 Go be who you'll be!  
 Be free to be other!  
@@ -16876,8 +17111,8 @@ with good luck!
 As long as you're happy,  
 I don't give a fuck.
 
+/r/AskReddit/comments/a0vt8e/teachers_of_reddit_what_are_some_positive_trends/eal2kgu/
 ----
-
 'And when I move my arm like *so* -  
 Or wave above, and swing below -  
 Or make a bend like *this one* here -  
@@ -16896,8 +17131,8 @@ The judge replied and sighed:
 '... get out.'
 
 
+/r/AskReddit/comments/a0jox8/lawyers_of_reddit_what_was_your_oh_shit_moment_in/eainhc7/
 ----
-
 The judge had almost finished when -  
 He raised a hand and thought again.   
 He frowned, fatigued, and rubbed an eye.  
@@ -16910,8 +17145,8 @@ He whispered softly, slowly:
 
 '... no.'
 
+/r/AskReddit/comments/a0jox8/lawyers_of_reddit_what_was_your_oh_shit_moment_in/eaijrea/
 ----
-
 >Then we'd be alone with ourselves.
 
 When I'm bundled up with chatter,  
@@ -16924,8 +17159,8 @@ Then I'm certain you can see -
 I am never truly lonely  
 When I'm on my own with me!
 
+/r/AskReddit/comments/a0a4cd/whats_the_most_amazing_thing_about_the_universe/eag9keb/
 ----
-
 'But what if it didn't?'  
 he struggled to say -  
 'And then, if it didn't,'  
@@ -16944,8 +17179,8 @@ He whimpered and whispered:
 
 '... I don't understand.'  
 
+/r/AskReddit/comments/a0a4cd/whats_the_most_amazing_thing_about_the_universe/eag7lbz/
 ----
-
 >That it created self aware entities that think about it.
 
 Of all the most amazing things -  
@@ -16985,8 +17220,8 @@ The most amazing thing is... *me.*
 
 ^^^^:)
 
+/r/AskReddit/comments/a0a4cd/whats_the_most_amazing_thing_about_the_universe/eag3xoq/
 ----
-
 'There is a carp inside my sack -  
 The cutest koi I thought to pack.  
 A scaley friend -  
@@ -17006,8 +17241,8 @@ A fellow made of slime,' he said.
 'But don't you worry though - he's dead.'
 
 
+/r/AskReddit/comments/a017ri/airport_security_personnel_of_reddit_what_is_the/eae60q3/
 ----
-
 'Good sir, it seems we've found,' said he -  
 'A certain small... *indignity.*  
 We've searched amongst your things and seen -  
@@ -17025,8 +17260,8 @@ You must have packed to use indoors.
 
 ... of course, I'm sure it isn't *yours.*'
 
+/r/AskReddit/comments/a017ri/airport_security_personnel_of_reddit_what_is_the/eae4416/
 ----
-
 And all ahead is doubt and dread,  
 The cold,  
 the old unknown -  
@@ -17046,8 +17281,8 @@ I cry, I say goodbye, I'm free.
 
 For what's behind is worse.
 
+/r/AskReddit/comments/9zzd2d/readers_of_reddit_which_sentence_blurb_passage_or/eadvul1/
 ----
-
 'The thing with us,' said I to me,  
 'Is really clearly plain to see,  
 For we're the *same*,' said I to I,  
@@ -17063,8 +17298,8 @@ and this I know.
 
 ... it gets a little boring though.'
 
+/r/AskReddit/comments/9zxjch/you_get_one_superpower_but_the_person_who_replies/eacxx60/
 ----
-
 I like da moon,  
 it big,  
 it bright.  
@@ -17091,8 +17326,8 @@ it go back down.
 
 I like da moon.  
 
+/r/AskReddit/comments/9yigfy/what_is_your_opinion_on_the_moon/ea2dgs1/
 ----
-
 She licks the walls,  
 she licks the floors,  
 she licks the clothes,  
@@ -17105,8 +17340,8 @@ I say:
 
 '... hello.'
 
+/r/AskReddit/comments/9yc7op/whats_the_rudest_thing_a_guest_has_ever_done_in/ea0re9y/
 ----
-
 'Well let us look,' the doctor said.  
 He leaned in close and shook his head.  
 'It's as I thought.  
@@ -17123,8 +17358,8 @@ The doctor said: '... go wash your dick.'
 
 
 
+/r/AskReddit/comments/9y24qb/whats_the_worst_case_of_oversharing_youve/e9y56lx/
 ----
-
 'YUM YUM YUM,' she says and grins.  
 Opens up the foody tins.  
 Scoops the chunks and starts to smile.  
@@ -17142,8 +17377,8 @@ Lifts her handies.
 
 Time to eat.
 
+/r/AskReddit/comments/9xwc0a/you_get_1000000_however_its_because_100_is_taken/e9w696t/
 ----
-
 'Was it roses and rings? Was it love at first sight?  
 Was it notes from the strings under stars in the night?  
 Was it hopes in your hearts? Was it truths to confess?'  
@@ -17152,8 +17387,8 @@ so they said to her:
 
 '... yes.'
 
+/r/AskReddit/comments/9xvx7o/whats_the_sluttiest_thing_youve_ever_done/e9w269s/
 ----
-
 I could take a puny penny -  
 I could steal a lonely dime -  
 Something meagre from the many  
@@ -17170,8 +17405,8 @@ But I'd really rather whittle
 Just a little from a lot.
 
 
+/r/AskReddit/comments/9xwc0a/you_get_1000000_however_its_because_100_is_taken/e9w13ne/
 ----
-
 He read what they'd written and smiled with a sigh -  
 A twinkling of love and a light in his eye.  
 He looked at his wife as she slept in the bed.  
@@ -17181,8 +17416,8 @@ He lifted the covers.
 '... let's do it,' he said.
 
 
+/r/AskReddit/comments/9x7j2t/if_mens_health_gave_shitty_sex_advice_to_guys_the/e9qfcn7/
 ----
-
 Don't ignore it,  
 jab and gore it,  
 and explore it  
@@ -17210,8 +17445,8 @@ then she's sure to fall for you!
 
 ^^^:)
 
+/r/AskReddit/comments/9x7j2t/if_mens_health_gave_shitty_sex_advice_to_guys_the/e9qekpz/
 ----
-
 So leave your pen behind and smile.  
 You've earned the right to rest a while.  
 You had the brains,  
@@ -17220,8 +17455,8 @@ the heart.
 
 It's time to end the walk-on part.  
 
+/r/news/comments/9wgrdf/report_stan_lee_dead_at_95_story/e9kl0om/
 ----
-
 He wandered her hall  
 with reluctance and dread.  
 'Come straight through the house  
@@ -17236,8 +17471,8 @@ He entered with care.
 
 ^^^:)
 
+/r/AskReddit/comments/9w4ngr/plumbers_delivery_guys_doctors_or_people_in_any/e9i1575/
 ----
-
 'So listen,' said Elon, 'I'm building a zoo -  
 A park of enclosures for humans like you -  
 Where people can look through your glass in a line.  
@@ -17245,8 +17480,8 @@ For this, I will pay yo-'
 
 'Bro, where do I sign?'
 
+/r/AskReddit/comments/9w3utv/elon_musk_has_announced_he_is_opening_a_human_zoo/e9hy12a/
 ----
-
 From time to time,  
 I think of then.  
 I turn my gaze before again.  
@@ -17262,8 +17497,8 @@ and what could be.
 
 I wonder if he thinks of me.
 
+/r/AskReddit/comments/9vrfbc/whos_that_person_that_you_wonder_if_they_still/e9ett0u/
 ----
-
 A thousand corny jokes a day.  
 She's heard them each and every way.  
 His wits are weak.  
@@ -17273,8 +17508,8 @@ She said: 'I'm cold.'
 
 He said: 'I'm dad.'
 
+/r/gifs/comments/9v2zle/wanna_come_back_to_my_place/e999tys/
 ----
-
 My dad plays all the games with me!  
 He knows them all from A to Z!  
 Like name the names that start with A,  
@@ -17289,16 +17524,16 @@ Or H or Z or M, you see,
 My dad plays all the games with me!  
 
 
+/r/AskReddit/comments/9urq6o/truck_drivers_of_reddits_what_is_your_most_nsfw/e96vjye/
 ----
-
 He sits on his porch with a glass in his hand -  
 Serenely surveyin' the lay of the land.   
 'We held 'em in meager and modest esteem -  
 Those ladies,' he whispered,  
 'We called  'em... *whipped cream*.'
 
+/r/AskReddit/comments/9urq6o/truck_drivers_of_reddits_what_is_your_most_nsfw/e96sjvg/
 ----
-
 iz a girl or iz a boy?  
 iz a Rose or iz a Roy?  
 iz a sis or iz a bro?  
@@ -17321,16 +17556,16 @@ tell me truez.
 buddy,  
 I'mma jizz in youz.
 
+/r/AskReddit/comments/9u4alp/what_is_one_fact_you_learned_that_you_wish_you/e91ttm9/
 ----
-
 'But what should I tell him?' he said with a sigh -  
 He stared at the text with a tear in his eye.  
 He looked at the bar and he put down his phone.  
 
 '... it's better he finds out the truth on his own.'  
 
+/r/AskReddit/comments/9u3moj/what_nsfw_fact_did_you_learn_at_an_embarrassingly/e91s99m/
 ----
-
 'I've come for a rim job,' he spoke with a smile -  
 They stood in the silence and stared for a while.  
 They narrowed their eyes at the person ahead.  
@@ -17339,8 +17574,8 @@ They gave him a rim job.
 
 '... good heavens,' he said.
 
+/r/AskReddit/comments/9u3moj/what_nsfw_fact_did_you_learn_at_an_embarrassingly/e91qde6/
 ----
-
 She stood and she stared with a tear in her eye.  
 A vision of pride with a jubilant sigh.  
 She opened the book and she added a note.  
@@ -17349,8 +17584,8 @@ I read what it said.
 
 'Not retarded,' she wrote.
 
+/r/AskReddit/comments/9tsgqh/what_simple_thing_did_you_learn_at_an/e8z5h1v/
 ----
-
 Not quiet and quirky or pretty and proud -  
 Nor dainty and darling or little and loud -  
 Not sweetly seductive or heavenly hot -  
@@ -17366,8 +17601,8 @@ But kinky,
 yes kinky's  
 the *best* kind of ho.
 
+/r/AskReddit/comments/9ts8oe/whats_the_worst_name_you_ever_heard/e8ywhxv/
 ----
-
 When Little Timmy realised  
 He couldn't fucking die -  
 He didn't ponder how, surprised,  
@@ -17390,8 +17625,8 @@ But later, so did others too.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/9tm8ku/you_are_immortal_for_the_next_24_hours_what_do/e8xrzj3/
 ----
-
 At night, I still recall the start -  
 We heard a 'pfft',  
 to wit:  
@@ -17403,8 +17638,8 @@ That none got in.
 
 And none got out.
 
+/r/AskReddit/comments/9t71ec/do_you_think_nuclear_weapons_will_be_used/e8udoe9/
 ----
-
 'It's a doggy dog world,  
 but it's one in the same -  
 Expresso's espresso  
@@ -17425,8 +17660,8 @@ I say irregardless
 on *accident*, friend!'
 
 
+/r/AskReddit/comments/9sz79k/what_is_nobody_ever_prepared_for/e8t0vrl/
 ----
-
 'I'm joking, bro!' he smiled and said.  
 He laughed aloud and shook his head.  
 'I'm only kidding, off the cuff!
@@ -17437,8 +17672,8 @@ He laughed aloud and shook his head.
 
 ^^^:'(
 
+/r/AskReddit/comments/9sz79k/what_is_nobody_ever_prepared_for/e8szjn0/
 ----
-
 In sleep,  
 she is beauty and goodness and grace -  
 A sigh on her lips,  
@@ -17458,8 +17693,8 @@ She whispers: '... fuck you.'
 
 
 
+/r/AskReddit/comments/9sz79k/what_is_nobody_ever_prepared_for/e8ssps1/
 ----
-
 'You're special,' she started -  
 'You're calm and you're kind -  
 You're tenderly-hearted,  
@@ -17487,8 +17722,8 @@ I love you,' she ended.
 
 ^^^:)
 
+/r/AskReddit/comments/9sn0w4/those_of_you_who_waited_or_struggled_to_get_a/e8qk0pp/
 ----
-
 When Little Timmy ate a slice  
 Of celery for lunch -  
 He said: 'How sweet and neat and nice  
@@ -17509,8 +17744,8 @@ And Timmy fucking died.
 
 
 
+/r/AskReddit/comments/9s3yq3/what_thing_did_you_believe_to_be_completely/e8mc9b8/
 ----
-
 'A biting and bitter, unbearable trade -  
 Improper, mistaken decisions we made -  
 But *never* repeated,' they whispered, and then -  
@@ -17518,8 +17753,8 @@ They did it again,
 and again,  
 and again.
 
+/r/AskReddit/comments/9s3fs8/what_are_people_slowly_starting_to_forget/e8m2r2j/
 ----
-
 In the tiny secret pocket  
 At the right-side of my jeans -  
 In the little fabric locket  
@@ -17539,8 +17774,8 @@ But I don't know what they are.
 
 
 
+/r/AskReddit/comments/9rmyk6/men_of_reddit_what_do_you_put_in_that_tiny_pocket/e8iokfr/
 ----
-
 '... and if you want,' he softly said,  
 'I'll be your friend in days ahead -  
 I'll be your pal in times of need,  
@@ -17555,8 +17790,8 @@ I'll be your friend.
 
 Not really tho.'
 
+/r/AskReddit/comments/9r6yot/the_un_estimates_that_there_are_currently_77/e8f67dn/
 ----
-
 'Lick my feet,' she whispered gently,   
 'Tongue my toesies so intently,  
 Munch upon my sordid, sweeties,  
@@ -17578,8 +17813,8 @@ Come enjoy my footsy flavour.'
 
 
 
+/r/AskReddit/comments/9r2akq/what_is_something_many_people_find_sexy_but_you/e8dwpym/
 ----
-
 She laughed and she screamed  
 and she slashed with her knife -  
 'Together and ever forever for life!'  
@@ -17587,8 +17822,8 @@ She wielded her weapon, and swung it above.
 And that's when,  
 and *that's* when I knew it was love.  
 
+/r/AskReddit/comments/9qxvll/whats_the_last_straw_that_made_you_go_yep_that/e8cvc93/
 ----
-
 When Little Timmy, working late,  
 Retrieved his cup and pen -  
 He cursed his weary, wretched fate,  
@@ -17605,8 +17840,8 @@ And Timmy picked the folder up.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/9qoi1m/what_are_the_worst_injuries_you_have_sustained/e8b0tqh/
 ----
-
 I looked at him.  
 He looked at me.  
 A bandage both around the knee.  
@@ -17618,8 +17853,8 @@ I whispered:
 
 
 
+/r/AskReddit/comments/9qoi1m/what_are_the_worst_injuries_you_have_sustained/e8awufe/
 ----
-
 While penning lines and verses -  
 While writing rhymes at night -  
 I had to see the nurses -  
@@ -17647,8 +17882,8 @@ He's slipped into a comma.
 The situation's tense.'
 
 
+/r/AskReddit/comments/9qoi1m/what_are_the_worst_injuries_you_have_sustained/e8awej9/
 ----
-
 'Really, not important dude.  
 Doesn't matter,  
 wasn't rude.  
@@ -17661,8 +17896,8 @@ let it go...
 
 ^^^^... ^^^^please.'
 
+/r/AskReddit/comments/9qcdls/whats_the_real_life_equivalent_of_getting/e88mey4/
 ----
-
 'I need a man who's nice to me,  
 And pure and true as true can be,  
 And sweet and neat and cute and kind,  
@@ -17685,8 +17920,8 @@ What say you, dear?'
 
 The minutes passed.
 
+/r/AskReddit/comments/9qbjn3/single_menwomen_on_reddit_whats_your_definition/e88h1lp/
 ----
-
 'My darling,' he whispered, and looked  in her eyes -   
 'You're warm and you're soft and as gentle as sighs -  
 You're bright as the light from the stars up above -  
@@ -17698,8 +17933,8 @@ In dreams we shall wander and ponder and fly.
 
 ... but right here and now I'mma roll where it's dry.'  
 
+/r/AskReddit/comments/9q589p/what_are_some_little_well_known_nsfw_life_hacks/e8761s5/
 ----
-
 'Oh daddy, we love you forever,' they sighed -  
 'You fill us with hope and with promise and pride!  
 You're flawless and peerless and perfect to see -  
@@ -17717,8 +17952,8 @@ To us, *you're amazing!'*
 
 He whispered: '... okay.'
 
+/r/AskReddit/comments/9q1q56/whats_the_best_response_to_why_are_you_so_quiet/e86bohx/
 ----
-
 'I won't judge a book by its cover,' she said -  
 'But this one has told me it *needs* to be read.  
 It's awfully foreword,' she whispered with doubt -  
@@ -17742,8 +17977,8 @@ It broke all his fingers, his teeth and his toes.
 'Cause that's what occurs when you mess with the prose.  
 
 
+/r/AskReddit/comments/9q1q56/whats_the_best_response_to_why_are_you_so_quiet/e86b0zt/
 ----
-
 'Good heavens, you're always so quiet,' they said -  
 'You're present, but soundless and speechless instead -  
 You're mute as a mummer!  
@@ -17753,8 +17988,8 @@ I pondered my words to them.
 
 'Shhh,' I replied.  
 
+/r/AskReddit/comments/9q1q56/whats_the_best_response_to_why_are_you_so_quiet/e867h7s/
 ----
-
 He picked them and clicked them and gave them a shake.  
 He listened, but sadly, no sound did they make.  
 'Good golly, good gracious, good heavens,' said he -  
@@ -17774,8 +18009,8 @@ It turned out successful.
 
 Two tongs make a right.
 
+/r/AskReddit/comments/9ozes2/whats_an_unspoken_rule_that_is_universally/e7yg99o/
 ----
-
 I grabbed them and gripped them as hard as I could -  
 I crushed them as surely as much as I should -  
 I squished and I squashed and I squeezed in his room -  
@@ -17783,8 +18018,8 @@ He whimpered with pleasure and joy.
 
 I assume.
 
+/r/AskReddit/comments/9oyfsk/what_did_you_do_sexually_with_your_first_partner/e7yb5w9/
 ----
-
 You can keep it with your panties,  
 In a cupboard by your bed -  
 In a suitcase with your scanties,  
@@ -17810,8 +18045,8 @@ You should never be without it.
 There's no substitute for lube.
 
 
+/r/AskReddit/comments/9njy6h/couples_of_reddit_what_sex_toyequipment/e7n8tgh/
 ----
-
 The sign they picked and posted read:  
 'Alas, the escalator's dead.  
 It does not work.  
@@ -17839,8 +18074,8 @@ He said: '... I do not understand.'
 
 
 
+/r/AskReddit/comments/9n9byt/what_job_exists_because_we_are_stupid/e7kxjgx/
 ----
-
 He sat in his palace and sobbed in his chair.  
 His bank vault was bursting.  
 His inbox was bare.  
@@ -17852,8 +18087,8 @@ He sighed with a sad little shake of his head.
 
 ^^^:(
 
+/r/AskReddit/comments/9n9byt/what_job_exists_because_we_are_stupid/e7kvvx0/
 ----
-
 Oh Susan G Komen, your ribbons are pink -  
 But something is *rotten* inside you, I think.  
 You say you're collecting to end all the woe -  
@@ -17873,8 +18108,8 @@ You're not ending cancer.
 
 Go fuck yourself, Sue.
 
+/r/AskReddit/comments/9mq9fy/what_industry_is_shadier_than_most_people_realize/e7h30ic/
 ----
-
 I know that I don't always see you enough -  
 With work and with kids and a marriage, it's tough.  
 You wake and you take it by dawn and by day -  
@@ -17901,8 +18136,8 @@ Your friend.
 ^^^:)
 
 
+/r/AskReddit/comments/9m47rt/younger_redditors_what_scares_you_about_getting/e7c1ysa/
 ----
-
 'Let us witness!' he said,  
 And he pointed ahead  
 Till his finger was pressed to the glass -  
@@ -17932,8 +18167,8 @@ And you leave them unchecked,
 It's a *beautiful* thing to observe.'
 
 
+/r/AskReddit/comments/9lvslr/people_whove_operated_the_network_cameras_at/e7a07n4/
 ----
-
 I'm a weary feathered fellow -   
 I'm a bleary birdy beat -  
 For my beak is fading yellow,  
@@ -17952,8 +18187,8 @@ I'm an Ostrich.
 
 Always tired.
 
+/r/AskReddit/comments/9lussc/people_of_reddit_are_you_a_morning_bird_night_owl/e79y35t/
 ----
-
 I could quit it in a minute -  
 I could turn the other cheek -  
 I could visit what was in it  
@@ -17973,8 +18208,8 @@ Not today.
 
 
 
+/r/AskReddit/comments/9lbrss/what_is_easy_to_get_into_but_hard_to_get_out_of/e760yc9/
 ----
-
 He wept in distress and despair where he lay:  
 'I can't kick the habit I do every day.  
 I've tried to be stronger -  
@@ -17993,8 +18228,8 @@ It's simple to see I'm an addict,' he said.
 
 He got off the couch and he went back to bed.  
 
+/r/AskReddit/comments/9lbrss/what_is_easy_to_get_into_but_hard_to_get_out_of/e75rdau/
 ----
-
 'Now son,' he began,  
 with a shake of his head -  
 'You can't send a dick  
@@ -18026,8 +18261,8 @@ I went for the quickest.
 
 
 
+/r/AskReddit/comments/9kqikt/people_who_accidentally_sent_nudes_to_the_wrong/e71joer/
 ----
-
 ''Twas truly disgusting,' he said with distress -  
 'Repulsive, outrageous, revolting, a mess!  
 Repugnant and rotten and wretched with woe -  
@@ -18040,8 +18275,8 @@ She listened with pity and nodded her head.
 
 '... twas *retail*,' he said.
 
+/r/AskReddit/comments/9kqayx/what_is_the_most_degrading_thing_you_have_ever/e71i19j/
 ----
-
 A wish diverged inside his mind,  
 And though he might have chosen there,  
 A thought traversed the space behind,  
@@ -18060,8 +18295,8 @@ He sighed and smiled and said the curse,
 And thus collapsed the universe  
 Into a singularity.  
 
+/r/AskReddit/comments/9kfmtz/youve_been_granted_one_wish_by_the_douchebag/e6z9y7h/
 ----
-
 They shivered and quivered and shuddered and shook -  
 And sobbed in distress for the pictures they took.  
 They quavered and wavered and faltered and fell -  
@@ -18075,8 +18310,8 @@ Whatever.
 
 What *wonderful* photos they made.
 
+/r/AskReddit/comments/9jw788/bridemaid_of_reddit_who_was_involved_in_a/e6ux9fn/
 ----
-
 He stands and he stares  
 with his eye to the gap -  
 A flash of the flesh,  
@@ -18088,8 +18323,8 @@ They're baking a dookie.
 
 He's making a friend.
 
+/r/AskReddit/comments/9jvyyf/america_why_the_fingersized_gaps_between_the/e6uukor/
 ----
-
 'Let's skimp and let's scrimp on the timber,' said he -  
 'We'll shave from the edges two inches or three.  
 A slice from the bottom -  
@@ -18109,8 +18344,8 @@ They trimmed it for more -
 
 And now when I shit there's not even a door.  
 
+/r/AskReddit/comments/9jvyyf/america_why_the_fingersized_gaps_between_the/e6uu9nt/
 ----
-
 >So for her to feel beautiful and see her smile when she looks at herself, instead of calling herself a potato, makes me very happy as a mom.
 
 She looks in the mirror.  
@@ -18124,8 +18359,8 @@ She waits for an answer.
 She whispers: '... it's me.'
 
 
+/r/AskReddit/comments/9jmvhz/redditors_with_good_eyesight_what_is_it_like_to/e6tgd65/
 ----
-
 '... but when I *weep*,' I softly said,   
 'The world is clear to me.'  
 The doctor slowly shook his head,  
@@ -18141,8 +18376,8 @@ I cry all fucking day.
 
 ^^^:'(
 
+/r/AskReddit/comments/9jmvhz/redditors_with_good_eyesight_what_is_it_like_to/e6tefif/
 ----
-
 'I knew she was crazy.  
 A fruitcake.  
 A *loon.*  
@@ -18150,8 +18385,8 @@ But dammit,
 godammit,  
 I wanted the poon...'
 
+/r/AskReddit/comments/9j78tq/whats_the_biggest_red_flag_you_overlooked_because/e6pu8bi/
 ----
-
 Why stop at the midwife?  
 Why hide it at all?  
 Preserve it and keep it to hang on the wall!  
@@ -18175,8 +18410,8 @@ You'll always have something to eat.
 
 
 
+/r/AskReddit/comments/9hzlya/women_who_have_given_birth_whats_something_no_one/e6fzzjs/
 ----
-
 'But in darkness I remember -  
 For I dream of what was true -  
 On the morning of November  
@@ -18207,8 +18442,8 @@ For I dream of what was true -
 On that morning of November  
 Back in nineteen-thirty-two.'
 
+/r/AskReddit/comments/9hyu84/reddit_how_would_you_feel_about_a_movie/e6fybua/
 ----
-
 'Perhaps I'll release it,' he thought with a sigh -  
 'Perhaps it's the time and the moment to try.  
 Perhaps I could finish the print on the page -  
@@ -18223,8 +18458,8 @@ He looked at his money.
 
 He whispered: '... but no.'
 
+/r/AskReddit/comments/9hpaln/what_are_your_predictions_for_the_year_2019/e6dw814/
 ----
-
 When Little Timmy drove his car  
 Along the open road -  
 He travelled swift and fast and far,  
@@ -18242,8 +18477,8 @@ And sirens sounded out the dark.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/9gx68l/reddit_how_would_you_feel_about_a_law_that_bans/e67sfqw/
 ----
-
 They be hiding by the village,  
 In the sewage,  
 At the zoo -   
@@ -18264,8 +18499,8 @@ They be where you least expect.
 
 
 
+/r/AskReddit/comments/9gmhep/with_over_7_billion_people_on_the_planet_what_do/e65ne1b/
 ----
-
 So he sat there there, so deflated,  
 With his sentence incomplete -  
 For he'd falteringly waited  
@@ -18290,8 +18525,8 @@ He woul-
 
 
 
+/r/AskReddit/comments/9frmlo/what_is_a_green_flag_in_someone_that_makes_you/e5z2k2n/
 ----
-
 He turned to the server and whispered, divine:  
 'So give her a blueberry pancake of mine.'  
 And thus, he departed, to sighs of delight.  
@@ -18300,8 +18535,8 @@ She tasted her pancake.
 
 'Twas love at first bite.  
 
+/r/AskReddit/comments/9frmlo/what_is_a_green_flag_in_someone_that_makes_you/e5z05io/
 ----
-
 She pushes her cart with a sigh and a smile -  
 From dairy to doughnuts and down every aisle.  
 A regular journey -  
@@ -18315,8 +18550,8 @@ and then puts it back.
 
 ^^^:(
 
+/r/AskReddit/comments/9e6m5a/what_was_the_worst_why_the_f_did_i_say_that_moment/e5mta53/
 ----
-
 The moonlight was gleaming -  
 The wind was a sigh -  
 And so, in the silence that followed goodbye -   
@@ -18326,8 +18561,8 @@ His sister was watching.
 
 He whispered: '... oh *fuck*.'
 
+/r/AskReddit/comments/9e6m5a/what_was_the_worst_why_the_f_did_i_say_that_moment/e5ms1nc/
 ----
-
 When Little Timmy squinted down,  
 And shook his weary head -  
 He sighed aloud, and with a frown,  
@@ -18344,8 +18579,8 @@ He grinned with joy and thus began.
 
 And Timmy fucking died.  
 
+/r/AskReddit/comments/9e3rrq/whats_something_that_looked_fun_but_you_realized/e5m3hsw/
 ----
-
 When you're dreaming oh-so-gently,  
 And the night is yours to keep -  
 When you're drifting so contently  
@@ -18364,8 +18599,8 @@ I will kill him indiscreetly.
 I will take my rightful place.
 
 
+/r/AskReddit/comments/9cbxqk/those_who_have_weird_neighbors_what_does_your/e59vrkr/
 ----
-
 Stupid, shittin',  
 screamin', sleepin',  
 Foul, infected,  
@@ -18380,8 +18615,8 @@ anus suckers.
 
 Nasty little motherfuckers.
 
+/r/AskReddit/comments/9c8qjl/whats_a_useless_but_interesting_animal_fact/e59a4u5/
 ----
-
 And when the darkness comes for me   
 To take me where I'm meant to be -  
 To guide me out beyond the black,  
@@ -18395,8 +18630,8 @@ I will not fret.
 
 I will not fight.
 
+/r/AskReddit/comments/99q9n5/redditors_who_have_been_clinically_dead_what_did/e4q0a2w/
 ----
-
 'I need a man,' she said with glee,  
 'Endowed with *twice* enough for me!  
 An extra leg -  
@@ -18418,8 +18653,8 @@ He showed her it.
 
 She whispered: '... holy fucking shit.'
 
+/r/AskReddit/comments/98jax5/what_is_extremely_rare_but_people_think_its_very/e4gna36/
 ----
-
 If you're ever writing fiction  
 Of the genre fantasy -  
 I can tell you with conviction  
@@ -18444,8 +18679,8 @@ And their eyes, well...
 
 
 
+/r/AskReddit/comments/98jax5/what_is_extremely_rare_but_people_think_its_very/e4gl0tl/
 ----
-
 His eyes were the size of the Sun and the stars -  
 His nose was as round as a ball -  
 His mouth was as wide as the heavens and Mars,  
@@ -18457,8 +18692,8 @@ And he smiled with a shake of his head.
 
 '... so it's totally *perfect,*' he said.
 
+/r/AskReddit/comments/989eg1/what_real_event_in_your_life_had_it_happened_in_a/e4eksj0/
 ----
-
 There was really nothing to it -  
 Just a bottle, shining bright -  
 But the sunbeams shone out through it,  
@@ -18477,8 +18712,8 @@ So I lifted out the stopper.
 
 And I couldn't put it back.
 
+/r/AskReddit/comments/989eg1/what_real_event_in_your_life_had_it_happened_in_a/e4efsoq/
 ----
-
 I remember him in classes -  
 I remember him in school -  
 With his messy hair and glasses,  
@@ -18496,8 +18731,8 @@ He was *Ed* to those who knew him...
 But to me,  
 he's Ginger 2.
 
+/r/AskReddit/comments/97h29h/you_die_credits_start_rolling_past_you_what_are/e48ntic/
 ----
-
 >... if they eat something bad or get sick, they have no choice but to suffer through it, where their stomach may rupture due to gas buildup...
 
 When Little Timmy ate a meal,  
@@ -18517,8 +18752,8 @@ But Little Timmy was a horse.
 
 And Timmy fucking died.
 
+/r/AskReddit/comments/97h8n4/what_makes_absolutely_0_sense_to_you/e48leix/
 ----
-
 If all my soul was dark as night,  
 And all my days were long -  
 My mind,  
@@ -18539,8 +18774,8 @@ I still could never be as deep,
 Not half as deep,  
 as you.
 
+/r/AskReddit/comments/97ezzd/what_is_the_most_riam14andthisisdeep_thing_that/e481gv0/
 ----
-
 He was bakin',  
 money makin',  
 Makin' takin's by the night -  
@@ -18565,8 +18800,8 @@ yeah he's bouncin',
 And he's bouncin',  
 bouncin' back.  
 
+/r/AskReddit/comments/9799el/youve_found_a_suitecase_full_of_750k_in_cash_in/e47018n/
 ----
-
 And they sat there in the silence,  
 As the seconds passed them by -  
 He was watching with excitement,   
@@ -18578,8 +18813,8 @@ But they only whispered:
 
 '... what?'
 
+/r/AskReddit/comments/972wrq/what_was_the_stupidest_thing_someone_has_asked/e45nmra/
 ----
-
 And I would have been courageous -  
 I'd have told them all the truth -  
 I'd have stood and boldly braved it,  
@@ -18591,8 +18826,8 @@ Made it better...
 
 ... if I'd known.
 
+/r/AskReddit/comments/96xrgr/whats_something_horrible_youve_witnessed_as_a/e44da9w/
 ----
-
 And she hammered on the windows,  
 And the signage,  
 And the doors -  
@@ -18605,8 +18840,8 @@ She was raving like a total fucking loony.
 
 So I quit.
 
+/r/AskReddit/comments/95x83j/redditors_who_rage_quit_a_job_without_thinking/e3wercx/
 ----
-
 He sits at the veil in the valley of death.  
 No heartbeat inside him.  
 No body.  
@@ -18618,8 +18853,8 @@ He whispers:
 
 '... the *fuck*?'
 
+/r/AskReddit/comments/95wdwm/what_famous_figure_could_generate_the_most/e3w9653/
 ----
-
 Tippy  
 tappy  
 pitter  
@@ -18631,8 +18866,8 @@ clicky
 clatter  
 every time you type.  
 
+/r/AskReddit/comments/95nx71/what_new_obnoxious_traits_are_you_noticing_in/e3ul8v1/
 ----
-
 It *might* be clean -  
 It *might* be neat -  
 It *might* be scented,  
@@ -18648,8 +18883,8 @@ To vape and blow -
 
 I do not want your lung farts, bro.
 
+/r/AskReddit/comments/95nx71/what_new_obnoxious_traits_are_you_noticing_in/e3ue5hp/
 ----
-
 My sister's a moron.  
 My brother's a dick.  
 My mother's a cretin,  
@@ -18661,8 +18896,8 @@ They're all *total assholes.*
 
 Alas, so am I.
 
+/r/AskReddit/comments/95llmi/what_is_your_oh_shit_im_an_asshole_moment/e3twjk8/
 ----
-
 'But this time it's *different*,' she thought with a sigh -  
 She flicked through the list with a light in her eye.  
 She circled apartments to share on their own.  
@@ -18671,8 +18906,8 @@ A noise from the table.
 
 She picked up her phone.  
 
+/r/AskReddit/comments/95llmi/what_is_your_oh_shit_im_an_asshole_moment/e3ts3a5/
 ----
-
 'That one's Steve, and that one's Tim!  
 Mike and Eddie, Hank and Jim!  
 Susie, Sarah, Paul and Pete!   
@@ -18701,8 +18936,8 @@ They're gone.'
 
 
 
+/r/AskReddit/comments/95gf7o/what_are_some_of_the_most_interesting_247/e3t599v/
 ----
-
 Some parents are bitter.  
 Some parents are blue.  
 And some are unbearable,  
@@ -18732,8 +18967,8 @@ We don't get to choose them.
 
 I'm glad I had you.
 
+/r/AskReddit/comments/95bu62/redditors_with_emotionally_mature_parents_who/e3s4kct/
 ----
-
 >Added feature to allow ear volume selection.
 
 She speaks the words he hates to hear.  
@@ -18743,216 +18978,5 @@ A judging frown.
 
 He slowly turns the volume down.   
 
-----
-
-When Little Timmy fell asleep  
-One hazy, crazy night -  
-He dreamt of seas and oceans deep  
-In shining beams of light.  
-
-He dreamt of birds and herds of beasts -  
-Of clouds and moons and stars -  
-Of dancing cats and fancy feasts  
-On Jupiter and Mars.
-
-He dreamt of all that was before -  
-And all that's still to be -  
-And all that is, and all, and more,  
-For you, and him, and me.
-
-He dreamt of endless spreads and spans  
-Of time and space beside -  
-But Timmy's friends had other plans.  
-
-And Timmy fucking died.
-
-
-----
-
-He silently stands by the space where you sit.  
-He leans in toward you and forward a bit.  
-He asks you to move , and you do as you're told.
-
-He grins like a bastard.
-
-He whispers: '... I'm old.'  
-
-----
-
-When Little Timmy toured the gym  
-To gain some extra mass -  
-The others stared and glared at him,  
-Whenever Tim would pass.  
-
-'A weak and feeble lad,' they said -   
-'A momma's boy.   
-A *wimp.*  
-With arms as soft as moistened bread,  
-And legs as twice as limp!'
-
-So Timmy thought to prove them wrong -  
-He chose his weights with pride.  
-He said: 'I'll show them all I'm strong!'
-
-And Timmy fucking died.
-
-----
-
-He sat by himself at the end of the week.  
-Too feeble to stumble,  
-too weary to speak.  
-He wondered in silence.  
-He thought of the thread.  
-He weighed his decisions.
-
-'... *goddammit*,' he said.
-
-----
-
-The gorgon only nears at night.  
-It rears its ugly head to scream,  
-And speaks in wounds and words of fright  
-In broken sleep and haunted dreams.
-
-It tells me dark and secret things.  
-It raises hands to hold me down,  
-And all the cold and pain it brings  
-Is thrice enough to make me drown.
-
-But I have read this tale before.  
-And I can tell you this, my friend -  
-That some day I will fear no more,  
-And monsters all are made to end.
-
-----
-
-If so inclined to find a pic,  
-A sexy shot,  
-a boob,  
-a dick,  
-A flick depicting indiscreet  
-A saucy vid of something sweet -  
-
-If so inclined to stare engrossed  
-And pester those who thought to post,  
-Instead of basking in the view,  
-Enjoying what's in front of you -
-
-If so inclined to do all this -   
-To pose the prick and act amiss -  
-To push and stress and force and threat -  
-
-Then fuck right off the internet.  
-
-----
-
->My ex was a teaching assistant and one of the parents found photography blog photos of her... the photos were removed and re-uploaded under a pseudonym instead.
-
-'Good lord!' said the parent,  
-'this woman has *breasts!*  
-I can't have her taking  
-my Timmy through tests!  
-She ought to be sorry,'  
-the parent opined -  
-'For being so wantonly,  
-wildly inclined!  
-
-'The horror!' she whispered:  
-'The duty to sue!  
-Imagine what Timmy  
-would do if he knew?  
-He'd never survive it -  
-he'd never forget -  
-The pictures I found  
-as I trawled through the 'net!
-
-'She ought to be *fired!'*  
-she said with delight -  
-'It's only what's fitting!  
-It's only what's right!'  
-She rang up the school  
-in her fury, and then -  
-
-The next day the photos were posted again.  
-
-
-----
-
-When Larry bumped into the latest of hires -  
-She walked like an angel with gospels of choirs.  
-She came like a saint in a sunbeam of light -   
-And Larry felt something inside him ignite.  
-
-'I'm sure that I've met you,' he said with a smile -  
-'It's just that I feel like I've known you a while.'  
-And then, when he knew that he'd clicked on her thread -  
-
-'... but actually, maybe I haven't,' he said.
-
-
-----
-
-We hear the words of who survive -  
-The thoughts of those who make it through -  
-The stories told by those who strive  
-To tell their tale a time or two.
-
-And yet, for every word we hear  
-Which speaks of all that went before,  
-In silent dread and constant fear -  
-
-There must be more.  
-
-There must be more.
-
-
-
-----
-
-Crawling, writhing, clawing, creeping,  
-Scraping walls in whispered weeping,  
-Ragged breathing,  
-narrowed spaces,  
-Broken edges,  
-choking places.  
-
-Caught and captured, clutching, clasping,  
-Bloody hands with fingers grasping,   
-Painful panting,  
-aching, wheezing,  
-Rising waters,  
-strangle, squeezing.  
-
-On and on and on you're crawling,  
-Sinking, drowning, flailing, falling,  
-Failing, gaining nothing, never.  
-
-Every second lasts forever.
-
-
-
-
-
-----
-
-You can rob a Lamborghini.  
-You can steal a motorbike.  
-You can be a Mussolini,  
-Or a Hitler,  
-if you'd like.  
-
-You can knife your friends and neighbours.  
-You can poke them till they ooze.  
-You can stab them up with sabres,  
-Or with sickles,  
-if you choose.
-
-You can buy a bunch of axes,  
- Start a riot, press destruct.  
-
-But you better pay your taxes.  
-
-Pay your taxes,  
-or you're *fucked.*
-
+/r/AskReddit/comments/953oa6/if_you_could_update_the_human_body_what_features/e3q7tc9/
 ----
