@@ -36,5 +36,6 @@ for comment in reddit.subreddit('askreddit').stream.comments():
      i += 1
      if any(keyword in cbody for keyword in my_keywords):
          fp.write(cbody)
+         fp.write("\n")
          fp.write(comment.submission.url)
-         fp.write("---\n")
+         fp.write("\n---\n")

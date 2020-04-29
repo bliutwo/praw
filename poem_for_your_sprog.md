@@ -30,6 +30,8 @@ and with arms that were red.
 
 "... they're *retarded*," they said.
 
+https://www.reddit.com/r/AskReddit/comments/g79cmj/what_do_you_think_is_scarier_the_idea_that_we_are/
+
 ----
 
 >I hoped he would be there on the day I got married and maybe be around for when I had kids, but unfortunately as much as we wish for things, sometimes they don't happen.
@@ -61,9 +63,9 @@ I made a wish.
 
 He clicked the post and then with glee,  
 He laughed and clapped and smiled to see  
-The bright, delightful words it said. 
+The bright, delightful words it said.
 
-He read the next. 
+He read the next.
 
 ... he closed the thread.
 
@@ -156,7 +158,7 @@ He simply sighed and smiled to say:
 "To wit: to end, to die -  
 To pass beyond the world of folk  
 And into endless sky -  
- 
+
 "It's not what people dream ahead -  
 It's not exactly bliss -  
 But if you *have* to leave," he said,  
@@ -174,7 +176,7 @@ And Timmy fucking died.
 He picked up his pen and he wrote with a smile:  
 *... he waited in shadows and after a while -*  
 *The breeze in the eaves was a phantom that cried -*  
-*It moaned in the silence...* 
+*It moaned in the silence...*
 
 The wind blew outside.
 
@@ -188,7 +190,7 @@ The lights flickered out.
 *... and there, where he waited, unknowing, unarmed -*  
 *Beguiled by the darkness, enraptured and charmed -*  
 *Engaged in his venture, and lost in his mind -*  
-*The door whispered open...* 
+*The door whispered open...*
 
 The door closed behind.
 
@@ -215,7 +217,7 @@ with the sun in your hair
 and the night and the dawn and the day -  
 You exist in my mind  
 in a moment defined,  
-and perhaps... 
+and perhaps...
 
 ... it's just better that way.
 
@@ -261,7 +263,7 @@ They looked at the puddings,
 the pastries, the pie -  
 She watched them.  
 
-She whispered: 
+She whispered:
 
 "... the cake is a *lie*."
 
@@ -362,7 +364,7 @@ Or stop to wonder why.
 He simply watched them plot the night,  
 And through the darkness, slip -  
 The moon and stars reflected white  
-And bright upon the ship. 
+And bright upon the ship.
 
 He watched the craft, and as it came,  
 He pondered on his own -  
@@ -553,7 +555,7 @@ They made a *mistake*!
 There's *thousands* of papers that prove that it's fake!  
 There's only a *single* that backs what you read!"
 
-He lunged for the latter. 
+He lunged for the latter.
 
 "I *knew* it!" he said.
 
@@ -581,14 +583,14 @@ The other responded: "... and neither do I."
 and often in life -  
 There's moments of heartache and moments of strife.  
 There's seconds of dread and discomfort and then -  
-There's seconds you'd rather not live through again. 
+There's seconds you'd rather not live through again.
 
 "But *not* speaking up is a problem," he sighed -  
 "And sometimes you just have do it with pride."  
 The other had listened.  
 He nodded his head.    
 
-They sat there in silence. 
+They sat there in silence.
 
 "... you're fired," he said.
 
@@ -672,7 +674,7 @@ But *think* how it could be!
 (And were I you, I would) -  
 You're sure to find,  
 as well you might,  
-You'll soon be... 
+You'll soon be...
 
 ... kinda good."
 
@@ -683,7 +685,7 @@ He says, with a laugh of delight and a tear -
 I *know* I like beer.  
 You put 'em *together*..." he speaks to her, slow.  
 
-He lifts his burrito. 
+He lifts his burrito.
 
 He says: "... here we go."
 
@@ -742,9 +744,9 @@ Created by Netflix," the voiceover said.
 
 "But momma," he whispered, "I don't understand" -  
 Until he caught sight of the phone in her hand.  
-He stared at it, captured and caught out of luck. 
+He stared at it, captured and caught out of luck.
 
-He looked at his mother. 
+He looked at his mother.
 
 He said to her: "... fuck."
 
@@ -842,7 +844,7 @@ Have you lived a painful life?
 Leave you broken on your knees?  
 Are you dancing for a buddy  
 With incurable disease?   
-  
+
 "Are you fit to go the distance  
 If we dangle you a dream?  
 Can we peddle your existence?  
@@ -1010,7 +1012,7 @@ When the *cringe* returns anew -
 To be lying on your pillow,  
 With a teardrop in your eye -  
 While the thoughts inside you billow  
-As you whisper softly: 
+As you whisper softly:
 
 "...*why*?"
 
@@ -1030,7 +1032,7 @@ You dragged from the chasm decorum forgot!
 "You've opened a hole in the customs of speech -  
 To bask in the folly and prance in the breach!"  
 And so, though it pained and it strained her to say -  
-She smiled and responded: 
+She smiled and responded:
 
 "... you have a *great* day."
 
@@ -1311,7 +1313,7 @@ But why, and who am I?
 What happened to me?  
 Is this what I've come to?  
 Is this what I'll be?
-  
+
 Is this how it ends,  
 in the wake of a wang?  
 And not with a whimper,  
@@ -1422,7 +1424,7 @@ And you're wonderful to me!
 
 And it's you I'll hold above me,  
 And it's you that I'll adore -  
-And you might just say you love me - 
+And you might just say you love me -
 
 ... but I think I love you more.
 
@@ -1477,7 +1479,7 @@ He grins with deep delight.
 He shakes his head and whispers slow,  
 With hope and pride and glee -  
 "Oh basketball-enjoying-bro:
-  
+
 ... your secret's safe with me."
 
 ----
@@ -1504,8 +1506,8 @@ My time to shine is here!"
 He clicked the box and slowly read  
 The words it held in store:  
 
-"u rly fukin suk," it said. 
- 
+"u rly fukin suk," it said.
+
 And so he posts no more.
 
 ----
@@ -1549,7 +1551,7 @@ And back on empty streets.
 
 And so it goes -  
 but that's her task.  
-She works without a fuss. 
+She works without a fuss.
 
 "Whatever for?" I hear you ask.
 
@@ -1628,7 +1630,7 @@ He swoops from the rooftops and poops on their head.
 
 ----
 
->I fired myself before that ass hat boss would do. Those employees were even more evil. 
+>I fired myself before that ass hat boss would do. Those employees were even more evil.
 
 "Fuck *you*," he said,  
 "and you and you,  
@@ -1655,7 +1657,7 @@ and fuck you red,
 and fuck you one,  
 and fuck you two,  
 But most of all,"  
-he said, 
+he said,
 
 "... fuck *you*."
 
@@ -1900,7 +1902,7 @@ When the clouds disappear, like it was here before -
 When the white-breakers break, and the tide meets the shore -  
 When the rain tumbles down onto still, silver lakes -
 
-I'll remember your smile in the ripples it makes. 
+I'll remember your smile in the ripples it makes.
 
 When the stars fade to dawn -  
 when the dawn turns to day -  
@@ -2007,7 +2009,7 @@ The man with rhyme inside his head,
 And time for all that's all unsaid -  
 The man with all the stealthy stuff,  
 The nightly out-of-sight-enough,  
-The store, the stash that's his to give - 
+The store, the stash that's his to give -
 
 Is he, alas, who *must not live.*
 
@@ -2058,7 +2060,7 @@ My girl is swell and super-sweet.
 She likes my butt,  
 she calls me bae.  
 
-She wakes beside me every day. 
+She wakes beside me every day.
 
 My girl is cool,  
 my girl is cute.  
@@ -2066,7 +2068,7 @@ My girl is *beautiful* to boot.
 She likes my face,  
 the way I feel.  
 
-She's all I need. 
+She's all I need.
 
 ... she isn't real.
 
@@ -2092,7 +2094,7 @@ And then, as the tints and intensities stirred -
 The paints and the pigments, the tinges they blurred -  
 I saw what was waiting for me at the end.  
 
-I slipped into darkness. 
+I slipped into darkness.
 
 Would not recommend.
 
@@ -2209,7 +2211,7 @@ His organised boxes of animal parts -
 The toes and the noses, the lungs and the hearts -  
 He'd spilled them; he'd mixed them and filled them and split.   
 
-He'd opened the box that said *Horrible Shit.* 
+He'd opened the box that said *Horrible Shit.*
 
 "Oh Jesus," said Jesus, from somewhere behind.  
 "You've got to stop drinking each time you've designed!"  
@@ -2431,7 +2433,7 @@ There I sat, procrastinating,
 Hope and hapless,  
 bored and waiting,  
 Till I turned to masturbating,  
-Jerking in the gloom - 
+Jerking in the gloom -
 
 Up and down I moved it, eager,   
 Hands an ardent ball beleaguer,  
@@ -2465,7 +2467,7 @@ To find with a fetish a fine fitting flick!
 For one and for all, and for year after year -  
 Wherever a tentacle's waiting ahead -  
 I'll view it!  
-I'll do it... 
+I'll do it...
 
 ... for *hentai*," he said.
 
@@ -2578,7 +2580,7 @@ Will know the *bestest* named!
 Because,"  
 you might have guessed -  
 He softly sighed and smiled and said -  
-"*Because*... 
+"*Because*...
 
 ... I am the best."
 
@@ -2703,7 +2705,7 @@ For just a little while.
 But time was only passing by  
 Before you had to go -  
 And though I understand the why,  
-I wish it wasn't so. 
+I wish it wasn't so.
 
 You're always more than just a pet -  
 And that can never end.
@@ -2755,7 +2757,7 @@ A little change is *good*."
 *And though you're sad the way you are,*  
 *Why make that choice today?"*
 
-I changed to who I hoped to be. 
+I changed to who I hoped to be.
 
 *I stayed the same old kid.*  
 
@@ -2796,7 +2798,7 @@ And nothin's accordin' to plan -
 Me mama's me pappy,  
 But dammit,  
 we happy,  
-And *me*... 
+And *me*...
 
 ... I'm a family man."
 
@@ -2879,7 +2881,7 @@ seated next to you.
 When the world has left me weary,  
 And I've no more will to roam -  
 Then I leave the drab and dreary,  
-And I trade it for my home. 
+And I trade it for my home.
 
 In the kitchen, at the table,  
 I can build myself a smile -  
@@ -3027,7 +3029,7 @@ I creep downstairs on silent feet.
 The system starts - a sound of dread,  
 Enough to raise the damned and dead!  
 And while it sighs and cries and whirs,  
-I wait in fear... 
+I wait in fear...
 
 ... but nothing stirs.
 
@@ -3051,7 +3053,7 @@ I swallow hard and google...
 "Oh it *might* be a cesspit of madness and memes,  
 Or the *place* of a basement inhabitant's dreams,  
 Or the *space* where preposterous notions are born,  
-But I tell you," he whispered, "I tell you... 
+But I tell you," he whispered, "I tell you...
 
 ... the *porn*."
 
@@ -3113,7 +3115,7 @@ Bold resolve misplaced.
 
 So his firmness failed and faded -  
 "Give me drugs," he whispered, jaded,  
-"Just a sniff," he said, persuaded. 
+"Just a sniff," he said, persuaded.
 
 "Just a tiny taste..."
 
@@ -3171,7 +3173,7 @@ with a shake of her head,
 as I watched from a place by the door -  
 So I wandered my way  
 to the space where she lay,  
-and I said: 
+and I said:
 
 "... get the fuck off the floor."
 
@@ -3205,7 +3207,7 @@ and exciting and more -
 It's simply a step  
 over which I must fall.   
 
-I am not attracted to penis. 
+I am not attracted to penis.
 
 That's all."
 
@@ -3277,7 +3279,7 @@ Spend the time alone with me.
 
 ----
 
->They dined and dashed. 
+>They dined and dashed.
 
 "I have a *great* idea!" he said,  
 And grinned with glee and stared ahead  
@@ -3404,7 +3406,7 @@ nice and neatly,
 So serenely  
 peaceful seeming,  
 Softly sleeping,  
-softly dreaming... 
+softly dreaming...
 
 There it was I dreamed of *fridges*  
 Slowly crossing mighty ridges,  
@@ -3488,7 +3490,7 @@ In softest silence, sweet.
 "You're such a sure and splendid boy;  
 A peachy pooch," said Tim -  
 "A furry friend that's filled with joy  
-And wit," he spoke, "and whim. 
+And wit," he spoke, "and whim.
 
 "You ought to know I love you, pup,"  
 He softly spoke and sighed.  
@@ -3574,7 +3576,7 @@ And I'll whisper it, and then:
 
 ----
 
-A Satan is not fast or slow. 
+A Satan is not fast or slow.
 
 A Satan goes  
 where Satans go.  
@@ -3590,8 +3592,8 @@ the thing about sand -
 The thing about itches  
 you must understand -  
 The thing about sand  
-in your hands and your hair - 
- 
+in your hands and your hair -
+
 It's coarse...
 
 ... and it's rough...
@@ -3686,7 +3688,7 @@ You're charging me money for nothing, I'd guess.
 
 Is *that* what you're doing?"  
 
-They said to him: 
+They said to him:
 
 "... yes."
 
@@ -3840,7 +3842,7 @@ Inside his simple head.
 
 "I'll find a fridge in which to fit!"  
 He spoke, and climbed inside.
-  
+
 And that was when the shock-wave hit.  
 
 And Timmy fucking died.
@@ -3876,13 +3878,13 @@ And so, when the hornets were caught in a spin -
 A circle of rage and resentment within -  
 A tempest of temper,  
 a bluster of gall -  
-A frenzy of fury and power withal - 
+A frenzy of fury and power withal -
 
 And when they were violent -  
 and when they were vexed -  
 And then they were frantic and panicked, perplexed -  
 And when they were twisting and turning about -  
-They picked up their sticks and they just... 
+They picked up their sticks and they just...
 
 ... let them out.
 
@@ -3891,7 +3893,7 @@ They picked up their sticks and they just...
 He always said the nicest stuff -  
 The decent thing to say -  
 He told me once: "... you *are* enough;  
-Have faith you know the way." 
+Have faith you know the way."
 
 He told me once: "... you *are* the best,  
 You *are* the brightest too -  
@@ -3963,7 +3965,7 @@ And Timmy fucking died.
 
 ----
 
->I still wish I could prove or disprove the existence of this dog because I remember him SO vividly and my family does not. 
+>I still wish I could prove or disprove the existence of this dog because I remember him SO vividly and my family does not.
 
 The dog that *is*,  
 that *was* before -  
@@ -4072,7 +4074,7 @@ Fuck.
 
 ----
 
->100% Happy? I think finding someone who genuinely loves me for who I am and wants a present and future with me. 
+>100% Happy? I think finding someone who genuinely loves me for who I am and wants a present and future with me.
 
 She comes up close and looks my way.  
 There's nothing much we need to say.  
@@ -4113,7 +4115,7 @@ I drank in the park.
 I drank in the glow of the dawn and the dark.  
 I drank for a while in the aisle at the store.  
 
-And then, when it finished... 
+And then, when it finished...
 
 ... I drank a bit more.
 
@@ -4208,7 +4210,7 @@ With a liquid brown and pink.
 And perhaps he might have smelled it,  
 Sitting there amidst his toes -  
 So I picked it up and held it,  
-And I whispered: 
+And I whispered:
 
 "... got your *nose.*"
 
@@ -4395,7 +4397,7 @@ I thought of all I ought to say:
 I thought of all I *might* have said,  
 Like *how* or *where* to go -  
 But all I did was shake my head,  
-And all I said was: 
+And all I said was:
 
 "... no."
 
@@ -4441,7 +4443,7 @@ It's not the words he whispers low,
 Or how he tells me true,  
 and so -  
 I only know it's *love*, you see,  
-Because... 
+Because...
 
 ... he shares his porn with me."
 
@@ -4597,7 +4599,7 @@ I don't believe in soulmates.
 It wasn't *meant to be.*  
 It wasn't trips,  
 and rocket ships,  
-But only *you* and *me*. 
+But only *you* and *me*.
 
 I don't believe in soulmates.  
 It wasn't *love* before.  
@@ -4662,7 +4664,7 @@ with a shake of his head,
 "Not just bitch and condemn and complain?  
 You *ignore* it, you say,  
 Then move on with your day,  
-And expel it at once from your brain? 
+And expel it at once from your brain?
 
 "And you mean," he remarked,  
 For a notion had sparked,  
@@ -4682,7 +4684,7 @@ It's sure to make the perfect show!
 
 ----
 
->One of the hardest things to accept as a child is that our parents are human - which can often make their mistakes so much more hurtful because of our naive thinking that they are infallible or otherwise have a code of conduct that is unattainable. 
+>One of the hardest things to accept as a child is that our parents are human - which can often make their mistakes so much more hurtful because of our naive thinking that they are infallible or otherwise have a code of conduct that is unattainable.
 
 She closed her eyes -  
 she slowly sighed,  
@@ -4763,7 +4765,7 @@ While poking each and every cyst
 That swelled and bulged and burst to leak  
 Between each decomposing cheek  
 And parasite-infested ass  
-In potent clouds of methane gas. 
+In potent clouds of methane gas.
 
 "My god!" he said, "what have you done?  
 Where have you been, my wayward son?  
@@ -4896,9 +4898,9 @@ But he added:
 
 He clicked the post and then with glee,  
 He laughed and clapped and smiled to see  
-The bright, delightful words it said. 
+The bright, delightful words it said.
 
-He googled each. 
+He googled each.
 
 ... he closed the thread.
 
@@ -5088,7 +5090,7 @@ You can take that tiny trooper
 To the place it's always night -  
 You can put 'em up your pooper!  
 
-But you shouldn't. 
+But you shouldn't.
 
 That ain't right.
 
@@ -5185,7 +5187,7 @@ As *wonderful* as you!
 Oh vinegar, oh vinegar,  
 They say you're good to drink -  
 They say you're used for fungus feet,  
-You clean the kitchen sink! 
+You clean the kitchen sink!
 
 Oh vinegar, oh vinegar,  
 You win!  
@@ -5441,7 +5443,7 @@ Is just a thing that simply fits -
 "Oh please," he whispered, "leave me be,  
 And leave my post approved -  
 It's really not my fault, you see,  
-I only- 
+I only-
 
     [Thread Removed]
 
@@ -5473,7 +5475,7 @@ And when it has finished, it leaves with your stores.
 It's gone just as quick as it thought to intrude.  
 
 Your kitchen is empty.  
- 
+
 It's Robin Mahfood.
 
 ----
@@ -5558,7 +5560,7 @@ Did it even leave at all?
 
 Is it somewhere up my bum?
 
-Let's go looking. 
+Let's go looking.
 
 *There's* my gum.
 
@@ -5676,7 +5678,7 @@ but she's not anymore.
 
 ----
 
->The man was shot in the head and the bullet bounced off his skull. 
+>The man was shot in the head and the bullet bounced off his skull.
 
 When Death arrives on wings of black  
 To bring me home  
@@ -5685,16 +5687,16 @@ and never back -
 When Death extends his bony hand  
 To take my soul  
 from where I stand -
-  
+
 When Death comes close,  
 when Death draws near,  
 I will not fret,  
 I will not fear,   
 I will not the dread the reaper, grim,  
 For I...
-  
+
 for *I...*
-  
+
 ... will headbutt him.
 
 ----
@@ -5786,7 +5788,7 @@ And safe and sure and swell.
 Be firm, and never fear to fall;  
 Be warm, and wise of mind -  
 Be strong, be smart, but most of all,  
-Be *good* to all. 
+Be *good* to all.
 
 Be kind.
 
@@ -5878,7 +5880,7 @@ Containers of pheasants and fillets and breasts!
 A bucket of bacon!  
 A mountain of rice!  
 A fountain of flavours to savour with spice!  
- 
+
 "Potatoes and cookies and carrots and fish!  
 Tomatoes for dinner to dine on a dish!  
 A car full of custard, a chalice of clams!  
@@ -6163,7 +6165,7 @@ And Timmy fucking died.
 *It's a pain, and he's making a noise on his own -*  
 *I should try to feel calm though I know that I don't.*  
 
-*I should probably say something now...* 
+*I should probably say something now...*
 
 *... but I won't.*
 
@@ -6213,7 +6215,7 @@ For our *family* to start.
 We were unprepared and parted -  
 But you have to understand -  
 That no matter where we started,  
-We'll be going hand in hand. 
+We'll be going hand in hand.
 
 And perhaps they'll shame us maybe -  
 And they'll try to make me see -  
@@ -6378,7 +6380,7 @@ They laughed,
 for they couldn't imagine 'twas me -  
 They laughed,  
 with the freedom of comfort and pride -  
-They laughed while I curdled in darkness inside. 
+They laughed while I curdled in darkness inside.
 
 How well I remember the why, and the way -  
 The shock and the blame and the shame of the day.  
@@ -6423,7 +6425,7 @@ to make decree,
 To reign above the fair, the free,  
 The fine and independent few -  
 
-The birds would do what birds would do. 
+The birds would do what birds would do.
 
 They'd start a world of pain and woe.  
 
@@ -6491,7 +6493,7 @@ And you're wonderful to me!
 
 And it's you I'll hold above me,  
 And it's you that I'll adore -  
-And you might just say you like me - 
+And you might just say you like me -
 
 But I think I like you more.
 
@@ -6593,9 +6595,9 @@ And it's not the face she's making,
 
 And it's really not another,  
 Nor the same old role on loop -  
-No it's something else, my brother. 
+No it's something else, my brother.
 
-Something other. 
+Something other.
 
 It's the goop.
 
@@ -6628,7 +6630,7 @@ I watched as they bickered,
 I watched them 'debate' -  
 Dispute with discordance, dissent and berate -  
 I watched as they traded in barbs and in sneers -  
-In scorn and in digs and in taunting and tears. 
+In scorn and in digs and in taunting and tears.
 
 And when they had opened the fissures, the gaps -   
 The ropes that had held us together in scraps -  
@@ -6640,7 +6642,7 @@ I rose from the table and told them with cheer:
 
 ----
 
->I'll eat my way out. 
+>I'll eat my way out.
 
 He mashed with his mashers,  
 he mindfully munched -  
@@ -6688,7 +6690,7 @@ The perfect time of day.
 
 And when he'd whispered "fare thee well",  
 He swung his blade with pride -  
-But Little Timmy tripped and fell. 
+But Little Timmy tripped and fell.
 
 And Timmy fucking died.
 
@@ -6718,7 +6720,7 @@ He looked beside the wheel and said:
 "For I shall be using it night after night!  
 I'll dream and I'll drift and how swiftly I'll pass!"  
 
-"It's *simple*," he whispered. 
+"It's *simple*," he whispered.
 
 ... it wasn't, alas.
 
@@ -6888,7 +6890,7 @@ or I'm mean
 or don't care -  
 And though I'm *engrossed*  
 by the things that you say -  
-I just have to go... 
+I just have to go...
 
 ... cause I don't want to stay."
 
@@ -6928,7 +6930,7 @@ He watched the changing scenes and swore:
 
 But journeys end, and all too quick,  
 It *stopped* -  
-he stepped outside. 
+he stepped outside.
 
 And so, he gave the train a lick.
 
@@ -6975,7 +6977,7 @@ You must not touch them with your hand.
 You must not touch a person small.  
 You must not touch a person tall.  
 You must not touch them in a park.  
-You must not touch them after dark. 
+You must not touch them after dark.
 
 You must not stroke.  
 You must not touch.  
@@ -6993,7 +6995,7 @@ A friend of mine -
 let's call him Bill -  
 He sits on laps of others still.  
 I know that something's quite amiss  
-For Bill is far too old for this. 
+For Bill is far too old for this.
 
 This friend of mine -  
 let's call him Bill -  
@@ -7017,7 +7019,7 @@ as he ran in the breeze -
 A laugh of delight  
 with the wind at his knees -  
 The bliss of a boy     
-in the nude and at peace - 
+in the nude and at peace -
 
 But as he was thirty,  
 they called the police.
@@ -7038,7 +7040,7 @@ Emotion that leaked from his eye in a tear.
 And when he was finished, he stopped with a sigh -  
 With triumph, he wiped at that tear in his eye.  
 And then, he decided, before he'd submit,  
-He'd read what he'd written. 
+He'd read what he'd written.
 
 He said: "... this is *shit.*"
 
@@ -7119,8 +7121,8 @@ I'll conquer every test!
 and I'll love my lovely life!  
 I'll journey and discover  
 with my lovely kids and wife!  
-Perhaps I'll love *tomorrow*!" 
- 
+Perhaps I'll love *tomorrow*!"
+
 He smiled and looked ahead.
 
 He softly sighed with sorrow.
@@ -7161,7 +7163,7 @@ or there,
 or near and far,  
 I know for sure  
 and pure  
-and true - 
+and true -
 
 I know for certain:
 
@@ -7187,7 +7189,7 @@ Amazing,
 When Little Timmy went to bed,  
 A *knock* came from his door:  
 "Can I come in?" his father said,  
-And crossed the bedroom floor. 
+And crossed the bedroom floor.
 
 "What is it, pa?" said Little Tim,  
 Alarmed, afraid to know -  
@@ -7243,7 +7245,7 @@ I looked at him kindly and whispered:
 The note she'd left upon the bed.  
 Her bags were packed.  
 Her clothes were gone.  
-She'd grabbed her things and travelled on. 
+She'd grabbed her things and travelled on.
 
 I stopped inside the bathroom where  
 I found no toothbrush waiting there -  
@@ -7275,7 +7277,7 @@ Someone broken to the brim -
 Then I think that you'll agree -  
 If he must be *rapey* looking -  
 
-Look no further. 
+Look no further.
 
 This is me."
 
@@ -7313,7 +7315,7 @@ And curly piggy hair!
 "I'll have to buy another *ten* -  
 A heap of hogs!" he cried.   
 
-But Timmy fainted in the pen. 
+But Timmy fainted in the pen.
 
 And Timmy fucking died.
 
@@ -7543,7 +7545,7 @@ Dejected and jaded with days on your own -
 There's really, sincerely just one thing to do:  
 A choice to be taking,  
 and making  
-for you. 
+for you.
 
 Of course you will worry and fret for yourself -  
 But life isn't meant to be lived from a shelf!  
@@ -7591,7 +7593,7 @@ She puts them away with a sad little sigh.
 She knows that it's over.  
 She knows that it's done.  
 
-She puts down her needle. 
+She puts down her needle.
 
 She picks up her gun.
 
@@ -7604,7 +7606,7 @@ Lift and loot, or else unlock it,
 *May*, I've always said sincerely,  
 Never be the thing you really  
 Think would be the most impressive  
-Thing to steal or pinch, possessive. 
+Thing to steal or pinch, possessive.
 
 Certain things are *harder* stolen  
 Than the purse or wallet swollen -  
@@ -7619,7 +7621,7 @@ Even *hearts* are ripe for stealin'.
 All above is easy-peasy -  
 *Any* shallow, senseless, sleazy,  
 Slob can take a ring or trinket...  
-If they only dare to think it. 
+If they only dare to think it.
 
 What I want is far exceeding.  
 
@@ -7648,7 +7650,7 @@ He walks to the sink in a dream.
 He sighs as he stares at his bottle of cream.  
 He presses the button -  
 and strangely enough -  
-There merely emerges a pale little puff. 
+There merely emerges a pale little puff.
 
 It's *early*.  
 
@@ -7721,7 +7723,7 @@ And though I *wish*
 you couldn't break  
 a heart that beats with feeling still -  
 
-I think you will. 
+I think you will.
 
 I think you will.
 
@@ -7770,7 +7772,7 @@ and he leant on the car -
 
 ----
 
->... made it so I could remotely update and change things... 
+>... made it so I could remotely update and change things...
 
 "But these *ads*," she whispered sadly,  
 "They're all full of naked men!"   
@@ -7791,7 +7793,7 @@ And *that's* how I know that I know that I know!
 It ends in a hole that's as cute as can be!  
 It leads to a place,  
 to a space in the skin -  
-And when you can view it, it's time to begin! 
+And when you can view it, it's time to begin!
 
 "Remember the hole in my member,"   he spoke -  
 He turned to the nearest and dearest of folk.  
@@ -7847,7 +7849,7 @@ a penis fly trap.
 The old golden palace; a fish mitten too -  
 A poon or a pooter; a one python zoo -  
 A trim or a quim or a muff or a dam -  
-A gash or a slash or a cockpit and clam. 
+A gash or a slash or a cockpit and clam.
 
 There's many vaginas -  
 and some of them small.  
@@ -7923,7 +7925,7 @@ She stares.
 
 My sister Sue is wise of wit -  
 She's crafty too, I must admit.  
-She clearly drafting plans somewhere. 
+She clearly drafting plans somewhere.
 
 But as she's *six*,  
 I just don't care.
@@ -7943,7 +7945,7 @@ As we see it come to pass.
 'Tis the tinctured crimson token,  
 And the richest ruby hue -  
 Of the wiz of webs unbroken,  
-And the thane of threads to view. 
+And the thane of threads to view.
 
 And to summarise completely,   
 So you know  
@@ -7989,7 +7991,7 @@ I just have to know."
 
 It showed him the number.
 
-He said to it: 
+He said to it:
 
 "... oh."
 
@@ -8110,7 +8112,7 @@ In early days of someone small -
 
 Is not at all.
 
-It's not at all. 
+It's not at all.
 
 &nbsp;
 
@@ -8154,7 +8156,7 @@ He cuffs himself and calls the cops.
 When Little Timmy met a king  
 Who looked him up and down -  
 The royal whispered, "here's the thing:   
-I want to make a *town.* 
+I want to make a *town.*
 
 "I want to make a town," he said,  
 "But not with older folk -  
@@ -8252,7 +8254,7 @@ I like the gust.
 I like the thrust,  
 The draft, the blast, the breeze.  
 
-I love to be the naked me. 
+I love to be the naked me.
 
 My roommate disagrees.
 
@@ -8262,13 +8264,13 @@ He turned the key and stopped his ride -
 He pulled the handbrake up and sighed,  
 And with a sad,  
 exhausted smile,  
-He stared beyond the screen a while. 
+He stared beyond the screen a while.
 
 He thought of all he had in life,  
 His hopes and dreams,  
 his kids and wife,  
 His house, his couch, his car, his job,  
-His mom, his dad, his uncle Bob. 
+His mom, his dad, his uncle Bob.
 
 And when the time had come to go,  
 He stepped outside and stopped and so,  
@@ -8337,7 +8339,7 @@ She softly said, "in times like these,
 I'd like him safe a while."  
 
 And so she grinned with wit and whim,  
-And had her boy with pride. 
+And had her boy with pride.
 
 But Little Timmy couldn't swim.
 
@@ -8379,7 +8381,7 @@ with ears by its side -
 A painting, repulsive,  
 revolting to view.
 
-I stared at me sadly. 
+I stared at me sadly.
 
 I said to me: "... ew."
 
@@ -8436,7 +8438,7 @@ The situation's tense."
 When Little Timmy formed a plan  
 To make himself a clown -  
 He said: "I'll be the laughin' man  
-That scares the whole damn town! 
+That scares the whole damn town!
 
 "I'll stride the side of streets at night,  
 The schoolyard gates,  
@@ -8480,7 +8482,7 @@ you're first in your class.
 You're skilled in your trade,  
 And you use what you've got.  
 
-You're just so *annoying*. 
+You're just so *annoying*.
 
 ... I miss you a lot.
 
@@ -8519,14 +8521,14 @@ I'm perfectly round."
 and often in life -  
 There's moments of heartache and moments of strife.   
 There's seconds of dread and discomfort and then -  
-There's seconds you'd rather not live through again. 
+There's seconds you'd rather not live through again.
 
 "My only advice to you, buddy," he sighed -  
 "Is speak when you've got to, and do it with pride."  
 The other had listened.  
 He nodded his head.  
 
-They sat there in silence. 
+They sat there in silence.
 
 "... you're fired," he said.
 
@@ -8716,7 +8718,7 @@ For all those thoughts are gone.
 The things I always thought I thought -  
 The thoughts I thought I'd think -  
 Alas, I think, have come to nought,  
-Or ebbed like faded ink. 
+Or ebbed like faded ink.
 
 For certain thoughts are put to bed,  
 And when their size has shrunk -  
@@ -8859,7 +8861,7 @@ The court room was silent.
 
 They all looked at Joe.   
 
-He whispered: 
+He whispered:
 
 "... but that could be *anyone* though."
 
@@ -8883,7 +8885,7 @@ Dwindle down to doom -
 
 "Oh," I said and softly, sadly,  
 Freed my flagging phallus gladly,   
-Till my mother whispered, madly: 
+Till my mother whispered, madly:
 
 "... please get out my room."
 
@@ -8919,7 +8921,7 @@ And caught the wayward boy.
 "Oh what disdain and what disgrace,"  
 They said and sadly sighed.  
 
-They put him in a secret place. 
+They put him in a secret place.
 
 And Timmy fucking died.
 
@@ -8957,7 +8959,7 @@ The many specifics I *must* recollect -
 My brain is an ocean,  
 and I am the boat!  
 From deep in my waters, the memories flow!  
-And *that* is why I can remember... 
+And *that* is why I can remember...
 
 ... oh no."
 
@@ -8989,7 +8991,7 @@ Wherever we're headed or just how it goes.
 We build for tomorrow as well as we can -  
 For no one is certain...  
 
-... but I have a plan. 
+... but I have a plan.
 
 I'm yearnin', returnin' to previous roots -  
 I'm dancin' to jazz and I'm preppin' my suits -  
@@ -9014,7 +9016,7 @@ I did not like it,
 not at all.  
 I did not like it,  
 not a lot.  
-But *this* time might be... 
+But *this* time might be...
 
 nope.  
 
@@ -9029,7 +9031,7 @@ It's not.
 "I cannot *believe* you!" she cried with dismay -  
 "I gave you my love and you threw it away!  
 I gave you my heart and my beauty and youth -  
-And what did I get but *obsession* with truth? 
+And what did I get but *obsession* with truth?
 
 "There's only a singular thought in your head -  
 And that's why we can't be together," she said.  
@@ -9052,7 +9054,7 @@ I'm always fucking *late*.
 I'm never where I'm meant to be -  
 And something *isn't* right.  
 It's plain to see  
-the problem's *me*. 
+the problem's *me*.
 
 ... I gotta leave this site.
 
@@ -9290,7 +9292,7 @@ You dream of jobs and kids, a wife,
 And luck in love, and love for life,  
 And all above,  
 and even more,  
-In dreams you've always waited for. 
+In dreams you've always waited for.
 
 You dream of things you've hoped were true,  
 And things you always thought you knew,   
@@ -9311,7 +9313,7 @@ As much as yours as others too.
 
 And life is hard,  
 and life is tough,  
-But *you*, my friend - 
+But *you*, my friend -
 
 are good enough.
 
@@ -9336,7 +9338,7 @@ A bridle, rope and bit and reins.
 And so it was he turned and then,  
 They saw him swing in silence slow,  
 Until he faced them all again,  
-And said: 
+And said:
 
 "... I can explain this though."
 
@@ -9362,7 +9364,7 @@ So they beat him to death with a shoe.
 When Little Timmy thought to play  
 With *electricity* -  
 He watched it move and stir and sway,  
-And clapped his hands with glee. 
+And clapped his hands with glee.
 
 "How *nice* it is to see," he spoke -  
 "How *nice* it is to stare -  
@@ -9428,7 +9430,7 @@ I'll leave them behind for they're mine to forget!
 "How truly delightful!" he spoke with a smile -  
 He sat in his chair and he thought for a while.  
 He pondered his dream in the silence and then -  
-He whispered: 
+He whispered:
 
 "... or maybe I'll do it again."
 
@@ -9494,7 +9496,7 @@ The more I empty all my cup,
 The *smarter* I become," he sighed,  
 And raised his glass and asked with pride  
 If all agreed indeed or not,  
-And finished, "*well*... 
+And finished, "*well*...
 
 ... it's worth a shot."
 
@@ -9503,7 +9505,7 @@ And finished, "*well*...
 When Little Timmy took the bet  
 One fair and fateful day -  
 He thought with joy of shrinking debt,  
-And what his friends would say. 
+And what his friends would say.
 
 He cast aside the door and chain -  
 He stepped beyond the room -  
@@ -9551,7 +9553,7 @@ i mayke a song
 to sing an soon -  
 
 i strum the string.  
- 
+
 i play the toon.
 
 ----
@@ -9575,7 +9577,7 @@ Something softly scrunching nearing?
 
 If you've seen these aberrations,  
 Spied these strange associations,  
-Warning, would-be-perpetrator - 
+Warning, would-be-perpetrator -
 
 *Well beware the page-curator.*
 
@@ -9713,7 +9715,7 @@ Have you travelled far and near?
 Were you traded in a market?  
 Were you spent on something sweet?  
 Or a car so they could park it  
-By the meter in the street? 
+By the meter in the street?
 
 Were you left in someone's pocket  
 On a rainy afternoon -  
@@ -9821,8 +9823,8 @@ To see them in my youthful age!
 "My friend, 'twas Tim, he thought to say -  
 Or was it Frank or Paul instead?  
 Well nevermind, he said one day:  
- 
-... I can't remember what he said. 
+
+... I can't remember what he said.
 
 "But all the same, they marched the *store*  
 To chide the way they looked below!"  
@@ -9849,7 +9851,7 @@ She gathered her breath for her final remark -
 The doorway was open.  
 It closed with a slam.
 
-He whispered, excited: 
+He whispered, excited:
 
 "... she knows who I am!"
 
@@ -9859,13 +9861,13 @@ He whispered, excited:
 I'm sorry I'm not who you want me to be!  
 I'm *leaving!*" he said and he ran away, sad.  
 
-In silence, he whispered: 
+In silence, he whispered:
 
 "Hi leaving... I'm dad."
 
 ----
 
->... otherwise I'll be in bed all day. 
+>... otherwise I'll be in bed all day.
 
 "I say," said he,  
 '"my day," said he,  
@@ -9900,7 +9902,7 @@ I try my best to try again.
 
 It's not a *fix*, a *cure* for me -  
 But then, it doesn't *have* to be.  
-It's something else when times are tough. 
+It's something else when times are tough.
 
 And sometimes maybe that's enough.
 
@@ -9941,7 +9943,7 @@ To dip, to dive, to float.
 "Oh how I love to skim the tide,  
 And sail the waters blue -  
 To skip," he spoke, "to roll, to ride  
-The salty ocean through! 
+The salty ocean through!
 
 "And soon I'll swim with seals," he said,  
 And smiled content and sighed.  
@@ -9976,7 +9978,7 @@ Of a trek towards a treasure,
 And a step on olden sands -  
 Of a distance you can measure  
 With your feet and with your hands.
-   
+
 There are stories made in murmurs  
 And they're spoken soft and slow -  
 Of a night descending gently,  
@@ -10030,7 +10032,7 @@ He whispers:
 The Gauls inside the castle said:  
 "We only need to wait -  
 For extra troops are just ahead  
-To seal ol' Caesar's fate! 
+To seal ol' Caesar's fate!
 
 "He *might* elect to wait beside,  
 Beyond this castle gate -  
@@ -10045,7 +10047,7 @@ They'll seal ol' Caesar's fate!"
 "We'll watch them fight and watch them fall,  
 Till all his hordes are gone!"  
 But then ol' Caesar built a *wall*,  
-And whispered: 
+And whispered:
 
 "... bring it on."
 
@@ -10144,9 +10146,9 @@ And took the perfect pic.
 
 He clicked the post and then with glee,  
 He laughed and clapped and smiled to see  
-The bright, delightful words it said. 
+The bright, delightful words it said.
 
-He read the next. 
+He read the next.
 
 ... he closed the thread.
 
@@ -10179,7 +10181,7 @@ And Timmy fucking died.
 They tell me she's sprightful, delightful, and sweet;  
 A pleasure to treasure from fingers to feet -  
 The fondest and fairest to savor and see;  
-Divinely and finely refined as can be - 
+Divinely and finely refined as can be -
 
 They tell me she's lovely, a lady of lust;  
 That many a suitor has boomed for her bust -  
@@ -10206,7 +10208,7 @@ A one and one's a perfect two.
 She comes up close and lingers near.  
 There's nothing much I need to hear.  
 There nothing much I need to share.  
-A one and one's a perfect pair. 
+A one and one's a perfect pair.
 
 She comes up close and looks to me.  
 The fairest, finest sight to see.  
@@ -10230,10 +10232,10 @@ for they couldn't imagine 'twas me -
 They laughed,  
 with the freedom of comfort and pride -  
 They laughed,  
-while I curdled in darkness inside. 
+while I curdled in darkness inside.
 
 How well I remember the why, and the way -  
-The shock and the blame and the shame of the day. 
+The shock and the blame and the shame of the day.
 
 I dream, and I hear it.  
 
@@ -10297,7 +10299,7 @@ What good will it do?
 Let's make the decision to turn away quick -  
 What say you?"  
 
-She whispered: 
+She whispered:
 
 "... I'll cut off his *dick.*"
 
@@ -10308,7 +10310,7 @@ She whispered:
 "Perhaps it just isn't as wild as they come -  
 And likely it isn't as lifting as some -   
 And maybe it isn't as fair or as fine -  
-But *dammit*," he whispered with passion: 
+But *dammit*," he whispered with passion:
 
 "... it's mine."
 
@@ -10355,7 +10357,7 @@ His mother turned to Tim and said,
 "It's just a moment more."  
 
 And so it was he waited there.  
-He waited there. 
+He waited there.
 Alone.  
 He waited till his golden hair  
 Was grey and overgrown.  
@@ -10379,7 +10381,7 @@ and nothing more.
 
 And when the moment came to pass  
 That mother turned with pride -  
-'Twas far too late for Tim, alas. 
+'Twas far too late for Tim, alas.
 
 And Timmy fucking died.
 
@@ -10464,9 +10466,9 @@ And strife and stress and sleepless nights.
 I must admit,  
 The symptoms lessen quite a bit."  
 
-"It's HIV?" was her reply. 
+"It's HIV?" was her reply.
 
-"Not HIV... 
+"Not HIV...
 
 ... B.A. B.Y."
 
@@ -10500,7 +10502,7 @@ and she wondered and how.
 She paused in reflection  
 and scratched at her head.
 
-She answered. 
+She answered.
 
 "... well *all* of them, darling," she said.
 
@@ -10551,7 +10553,7 @@ And everybody died.
 Journey's hard and journey's long.  
 Sometimes journey turns out wrong.  
 Sometimes makes you half-forget:  
-  
+
 Journey isn't over yet.
 
 ----
@@ -10595,7 +10597,7 @@ When you're full of doubt and fear -
 I'll be with you,  
 waiting here.  
 I will try my best, and then -  
-I will make you smile again. 
+I will make you smile again.
 
 When the world is hard to bear -  
 I will show you  
@@ -10774,7 +10776,7 @@ or away,
 and departed at last -  
 Displaced from the living;  
 decamped from the live;  
-He's hard to awaken and tough to revive - 
+He's hard to awaken and tough to revive -
 
 He's done,  
 or he's dashed,  
@@ -10800,14 +10802,14 @@ That just wasn't *decent*.
 That just wasn't *right*.  
 That just wasn't pleasant, or pleasing, polite.  
 The crudeness, the rudeness, the shock and the shame -  
-How *dare* they request that she show them her frame? 
+How *dare* they request that she show them her frame?
 
 For had they no mother?  
 No woman revered,  
 Who told them how awful it is to be jeered?  
 Or had they no father who taught them to act -  
 With honour, respect or the virtue of tact?
-  
+
 *But such is the lot of a lady*, she thought -  
 Her dreams and achievements belittled to nought.  
 A blank little figure for perverts to flirt -  
@@ -10838,7 +10840,7 @@ I will not flaunt the boob below.
 "You see," said she, "this boob's for me -  
 I keep it where it's meant to be,  
 And when it is I deign to bare,  
-There's no one, not one, else one there. 
+There's no one, not one, else one there.
 
 "And so I will not open up.  
 You can not see inside my cup.  
@@ -10858,7 +10860,7 @@ Unbound and unbridled by social decrees!
 And don't be afraid to be you when you're out!  
 The future is yours and it's ready ahead!"  
 
-He waited. 
+He waited.
 
 "... I don't really want to," she said.
 
@@ -11037,7 +11039,7 @@ I want you to know."
 
 ----
 
->I hope you can find the support you need to make a change. 
+>I hope you can find the support you need to make a change.
 
 I can't help you much from my spot over here -  
 The pull of the pint and the bait of the beer -  
@@ -11146,7 +11148,7 @@ And perfect posts and threads divine.
 You're obscene and corrupt and debauched and disgraced?  
 You're perverse and profane and you freely confess?"  
 
-And with pride, he replied with a confident: 
+And with pride, he replied with a confident:
 
 "... yes."
 
@@ -11226,7 +11228,7 @@ Be bad.
 Be sinful and spiteful and monstrously mad.  
 Engage and enrage while you anger and irk.  
 
-But baby, be *flashy.* 
+But baby, be *flashy.*
 
 Take pride in your work.
 
@@ -11241,7 +11243,7 @@ A word of love for me, your boy,
 Your only son, who loves you dear,  
 And wants you close to hold him near,  
 To say he'll find a finer way,  
-And tell him *all will be okay.* 
+And tell him *all will be okay.*
 
 That's all I want.  
 
@@ -11280,7 +11282,7 @@ And Tuten fucking died.
 When Little Timmy jogged the park,  
 He said, one summer's night -  
 "How nice it is to run the dark,  
-Beneath this starry light. 
+Beneath this starry light.
 
 "I think of where I'll go," he said,  
 "And how and who I'll be -  
@@ -11350,7 +11352,7 @@ Muscular and more.
 Stanley's fought on roads and rallies.  
 Stanley's stout and mean.   
 Stanley's fought in bars and alleys,  
-Everywhere between. 
+Everywhere between.
 
 Stanley's trained in chi-fu-fighting,  
 Nin-t'ai-sumo-hit.  
@@ -11372,7 +11374,7 @@ I shout them out with angry pride.
 I speak them loud  
 and pleased and proud,  
 Unwelcome and unjustified.  
- 
+
 Perhaps you'll think I'm being blunt,  
 While other people take the brunt.  
 Alas you'll find  
@@ -11432,7 +11434,7 @@ He sits in the darkness and stares at the screen -
 The posts and the comments, the letters between -  
 The words that bedazzle, bemuse and bewitch.  
 
-"Oh Macklin," he whispers: 
+"Oh Macklin," he whispers:
 
 "... *you son of a bitch*."
 
@@ -11482,7 +11484,7 @@ Somewhere safely sealed away.
 "I'd rather be indebted  
 To a loaner or a bank -  
 Than count the cash I've netted  
-Saving krone and pound and franc. 
+Saving krone and pound and franc.
 
 "Cause when I'm feeling dreary,  
 And I know I can't go on -  
@@ -11496,7 +11498,7 @@ There's nothing makes me cheery
 If maybe you're weary of feeling alone -  
 Dejected and jaded with days on your own -  
 There's really, quite clearly just one thing to do -  
-A *choice* to be taking and making for you. 
+A *choice* to be taking and making for you.
 
 Of course you will worry and fret for yourself -  
 But life isn't meant to be lived from a shelf!  
@@ -11524,7 +11526,7 @@ You're clearly not really the right one for her.
 Whatever the reason, you have to decide -  
 That can you be happy just there by her side?  
 If something within you is telling you *no* -   
-The answer is certain. 
+The answer is certain.
 
 You just have to go.
 
@@ -11599,7 +11601,7 @@ So I know what I will tell you
 When you wake this afternoon.  
 
 It's the kindest lie to sell you.
-  
+
 I will answer: "... maybe soon."
 
 ----
@@ -11638,7 +11640,7 @@ He'd waited in silence and watched with dismay.
 Their old way was finished -   
 their old way was through.  
 
-He wrote "*6/11*?" 
+He wrote "*6/11*?"
 
 He said: "... that'll do."
 
@@ -11697,12 +11699,12 @@ There were buxom heaving chests -
 And wherever I was looking,  
 And no matter where I stared -  
 There was something curvy cooking,  
-There was something better paired. 
+There was something better paired.
 
 So I reached a hand and stretched it,  
 And I touched it, thunderstruck -  
 And I chose a pic and fetched it,  
-And my fingers sort of... 
+And my fingers sort of...
 
 ... stuck.
 
@@ -11711,13 +11713,13 @@ And my fingers sort of...
 He looked at my penis.  
 
 I held it at bay.
-  
+
 We stared in the silence with nothing to say.  
 Unlikely the vision he thought that he'd find.  
 "What is it?" a voice came inquiring behind.  
 
-He looked at my penis. 
- 
+He looked at my penis.
+
 I held it inert.  
 
 A bare-bottomed fellow in only a shirt.  
@@ -11935,7 +11937,7 @@ when you're perfect.
 When Little Timmy mocked his dad,  
 One former, fated day -  
 He didn't think it wrong or bad,  
-But turned to pa to say: 
+But turned to pa to say:
 
 "How truly sharp and slick," said he -  
 "How wise and swift of wit!  
@@ -11975,7 +11977,7 @@ We'll spy the Moon and Mars.
 "We'll take a stroll along the tide -  
 We'll see the rolling sea -  
 'Cause after all," she said and sighed,  
-"The best of life is free." 
+"The best of life is free."
 
 And so she slowly shook her head:  
 "We don't need something new -  
@@ -11998,7 +12000,7 @@ This thing, I do declare.
 "This thing right here you mustn't touch -  
 This thing right here ahead -   
 You must not touch this thing and such,  
-Don't touch this thing," he said. 
+Don't touch this thing," he said.
 
 The warehouse phone began to ring,  
 So Bob walked off and sighed.  
@@ -12085,7 +12087,7 @@ But I'm keeper of the gate.
 You can sit there busy hating,  
 'Cause you know it's getting late -  
 For you might be sick of waiting...
-   
+
 But I'm keeper of the gate.
 
 ----
@@ -12098,12 +12100,12 @@ If I am slow, I'm fucked as can be.
 What do you get if you don't do it right?  
 Half of your pay and shifts in the night?  
 What do you get if you do it again?  
-What do you think will hap-pen then? 
+What do you think will hap-pen then?
 
 Oompah-loompa, doopity-doo,  
 Watch out for Jeff, he's looking for you.  
 Oompah-loompa, doopity-doh,  
-No you'll have nowhere, nowhere to go. 
+No you'll have nowhere, nowhere to go.
 
 What do you get if you go for a pee?  
 Off to the boss for a warning or three?  
@@ -12152,7 +12154,7 @@ He'd fixed his will and made his mind,
 
 And so he went to work with joy  
 And open hope and pride -  
-For *Amazon*, unlucky boy. 
+For *Amazon*, unlucky boy.
 
 And Timmy fucking died.
 
@@ -12177,13 +12179,13 @@ Just nothing,
 but nothing,  
 and nothing, to wit:  
 
-They watched and they waited. 
+They watched and they waited.
 
 He said: "... is this it?"
 
 ----
 
->... everytime I hear it I have a split second of vietnam flashbacks... 
+>... everytime I hear it I have a split second of vietnam flashbacks...
 
 >... I have this wave of anxiety...
 
@@ -12211,13 +12213,13 @@ Cause he's never been to war.
 I have walked and I've crawled over dust and debris -  
 I have looked for the way -  
 I have followed the star -  
-By the light of the moon, I have come from afar. 
+By the light of the moon, I have come from afar.
 
 "I have rode and I've roved and I've roamed and I've raced -  
 I have plodded and pounded, paraded and paced -  
 I have crossed over lands,  
 And on sands I have passed -  
-Many sights have I seen but I've made it at last. 
+Many sights have I seen but I've made it at last.
 
 "For I'm here," she explained, "in this far-away land,  
 With a hope in my heart and a phone in my hand.  
@@ -12233,7 +12235,7 @@ From the dark he emerged, and he said to her:
 The best of things that wait below,  
 The finest parts,  
 the fairest bits,  
-Are curvy bods and squishy tits. 
+Are curvy bods and squishy tits.
 
 "I do not need my sight to see  
 The most attractive thing to me  
@@ -12279,7 +12281,7 @@ And Timmy fucking died.
 "How darling my dearest descendants will be!  
 More truly appealing and pleasing than me!  
 For though I am ugly, unpleasant, unfair -  
-At least I can hope they'll be *prettier* there! 
+At least I can hope they'll be *prettier* there!
 
 "In decades and decades and decades from now -  
 I won't tell you when, and I can't tell you how -  
@@ -12292,7 +12294,7 @@ And out from the vapor, he stepped to below.
 
 He saw his descendant.  
 
-He said to him: 
+He said to him:
 
 "... oh."
 
@@ -12314,7 +12316,7 @@ is this," he said,
 that no one,  
 no one,  
 really...
-  
+
 ... knows."
 
 ----
@@ -12378,7 +12380,7 @@ Machete your granny, your brother, your pa.
 I'll chainsaw your cousin.  
 I'll drown aunty Eve.  
 Your step-sister Alice.  
-Your great-uncle Steve. 
+Your great-uncle Steve.
 
 "I'll slice 'em.  
 I'll dice 'em.  
@@ -12388,7 +12390,7 @@ So let us get *married* - I love you a lot."
 
 He waited in silence.  
 
-She said to him: 
+She said to him:
 
 "... what."
 
@@ -12403,7 +12405,7 @@ The girl to his left in her place on the bed -
 "But really, it's only an *accident*, sweet!  
 A misunderstanding, confusion complete!  
 A simple distortion of virtuous folk!  
-And soon we'll be laughing about it!" he spoke. 
+And soon we'll be laughing about it!" he spoke.
 
 "The thing that I'm saying -  
 the truth you should take -  
@@ -12411,7 +12413,7 @@ The essence, the point that I'm trying to make -
 The thing that I'm saying I think you should hear -  
 I want you to...  
 
-... want you to... 
+... want you to...
 
 ... marry me, dear?"
 
@@ -12563,7 +12565,7 @@ Nor ever, ever, never, no.
 'You mustn't *question* me, my love,  
 Not left or right, below, above,  
 Or old or new, or big or small,  
-Or any way, in fact, at all. 
+Or any way, in fact, at all.
 
 'You mustn't *question* me, my heart,  
 Not at the end, or at the start,  
@@ -12662,7 +12664,7 @@ And forever I'd be blessed.
 
 I would do it a hurry.  
 
-Say *banana*. 
+Say *banana*.
 
 Be my guest."
 
@@ -12754,7 +12756,7 @@ It simply slipped away.
 
 It curled and twirled and flaked in fall  
 Towards that closing ride.
-  
+
 But Timmy hadn't moved at all.   
 
 And Timmy fucking died.
@@ -12772,7 +12774,7 @@ And there's little else to do!
 "Oh you want a little dinner,  
 Little dinner, do you dear?  
 For I see you're getting thinner,  
-Getting thinner 'round the rear! 
+Getting thinner 'round the rear!
 
 "Would you like a little nibble,  
 Little nibble on your plate?  
@@ -12812,7 +12814,7 @@ I am free -
 But I'm never,  
 no not ever,  
 So it's never  
-meant to be. 
+meant to be.
 
 &nbsp;
 
@@ -12847,7 +12849,7 @@ My bollocks itch.
 It takes an awful lot of smarts,  
 A gifted build of moving parts,  
 To simplify what's hard to know  
-Enough to make you whisper: 
+Enough to make you whisper:
 
 "... *oh*."
 
@@ -12895,7 +12897,7 @@ I think of you.
 When the world has left me weary,  
 And I've no more will to roam -  
 Then I leave the drab and dreary,  
-And I trade it for my home. 
+And I trade it for my home.
 
 In the kitchen, at the table,  
 I can build myself a smile -  
@@ -12911,7 +12913,7 @@ So it's simple in summation,
 For I really must admit -  
 In my place of habitation...
 
-I can freely take a shit. 
+I can freely take a shit.
 
 &nbsp;
 
@@ -12922,7 +12924,7 @@ I can freely take a shit.
 "These mighty matching balls of mine  
 Are much the same and each as fine  
 And each alike in shapes and tones.  
-You see," said he: 
+You see," said he:
 
 "... they're testiclones."
 
@@ -12940,8 +12942,8 @@ As far as the moon and the space in between.
 
 "I love him as sure as the beat of a drum -  
 As set and as certain tomorrow will come -  
-*Forever*," she wrote, and she posted anew. 
- 
+*Forever*," she wrote, and she posted anew.
+
 She turned to her boyfriend.
 
 She whispered:
@@ -12968,7 +12970,7 @@ He absently rubbed at a tear in his eye -
 She stood there in silence.  
 She whispered with dread:
 
-"... then why in the *fuck* did you ask me?" she said. 
+"... then why in the *fuck* did you ask me?" she said.
 
 ----
 
@@ -13019,7 +13021,7 @@ He stopped.
 
 He said:  
 
-"I am the GOAT." 
+"I am the GOAT."
 
 ----
 
@@ -13086,8 +13088,8 @@ You're jesting.
 You're claiming.  
 You kid.  
 
-I don't think it happened. 
- 
+I don't think it happened.
+
 Except that it did.
 
 ----
@@ -13144,7 +13146,7 @@ The heart of a life that I'm longing to lead.
 "From now till forever and ever ahead.  
 I love you for always and always," he'd wrote.  
 
-It ended: 
+It ended:
 
 "... I can't wait to give you this note."
 
@@ -13166,8 +13168,8 @@ or noticed inside.
 For here in this vessel,  
 with what it contains -  
 There snuggle and nestle  
-a human's remains. 
-  
+a human's remains.
+
 "It's simply disgusting,  
 or dreadful, at least -  
 To witness the dusting  
@@ -13178,7 +13180,7 @@ and *shocking* and such!"
 He stared at her, waiting.  
 
 He whispered: "... how much?"
- 
+
 
 ----
 
@@ -13352,7 +13354,7 @@ and then -
 There's something going on  
 again -  
 And every time you're feeling small,  
-You think that no one cares at all - 
+You think that no one cares at all -
 
 "But when you fear you're on your own,  
 You have to know:  
@@ -13372,7 +13374,7 @@ Is *not* the thing you think you know.
 "Alack, alas," the doctor cried -  
 He slowly, surely, softly sighed.  
 "The thing I think you thought to see  
-Is *not* the thing you think it be. 
+Is *not* the thing you think it be.
 
 '"Alas," the doctor sadly spoke -  
 "It's *not* a bump of baby folk.  
@@ -13434,7 +13436,7 @@ I whispered: '... *oh.*'
 
 I still recall the day, bereft,  
 The fated night my childhood left,  
-For there, forlorn, for all to see... 
+For there, forlorn, for all to see...
 
 Was Pee Wee's weepy wee peepee.
 
@@ -13475,7 +13477,7 @@ Until the *creep* came in.
 He watched him hard, as well he ought,  
 And though it made him glum -  
 'I mustn't worry,' Timmy thought,  
-'A trucker's sure to come.' 
+'A trucker's sure to come.'
 
 So Timmy grinned with real delight.  
 He served the creep with pride.  
@@ -13509,7 +13511,7 @@ The smallest step
 you take each day  
 Is still  
 a step  
-along the way. 
+along the way.
 
 &nbsp;
 
@@ -13538,11 +13540,11 @@ If you am I and I am you,
 Then both of us are me!'  
 
 And so they lived their life of whim,  
-With hope and joy and pride. 
+With hope and joy and pride.
 
 But Tim had *plans*, and so did Tim.  
 
-And Timmys fucking died. 
+And Timmys fucking died.
 
 ----
 
@@ -13571,7 +13573,7 @@ Alike, akin!'
 And so we did -  
 I'll tell you why -  
 
-I guess we saw it... 
+I guess we saw it...
 
 I to I.  
 
@@ -13659,7 +13661,7 @@ His breathing was slow.
 
 I looked at him sadly.  
 
-I whispered: 
+I whispered:
 
 '... don't go.'
 
@@ -13746,7 +13748,7 @@ soft and slow:
 
 ----
 
->At the time it was hard to realize I'd done the right thing, she'd sounded so betrayed on the phone when she realized I'd called the police for her, but she's since turned it around, she's okay, and that's the main thing. 
+>At the time it was hard to realize I'd done the right thing, she'd sounded so betrayed on the phone when she realized I'd called the police for her, but she's since turned it around, she's okay, and that's the main thing.
 
 Perhaps you will think I'm betraying your trust -  
 Uncaring, unrightful, unfair and unjust.   
@@ -13758,10 +13760,10 @@ Perhaps you will think that I shouldn't have lied -
 Should simply accepted your wishes, or tried.  
 Perhaps you will wish that I'd dallied or stalled -  
 Perhaps you will wish that you'd never have called.  
- 
+
 But maybe, and hopefully, soon you will know -  
-I could not, I would not, I can't let it go. 
- 
+I could not, I would not, I can't let it go.
+
 I will not regret it.  
 
 I won't let it be.  
@@ -13784,7 +13786,7 @@ For our family to start.
 We were born and raised by others -  
 We have all our lives before -  
 And you've sisters or you've brothers,  
-But perhaps you've room for more. 
+But perhaps you've room for more.
 
 See I'd really like to show you,  
 And I'd like to tell you how -  
@@ -13832,7 +13834,7 @@ And nothin's accordin' to plan -
 Me mama's me pappy,  
 But dammit,  
 we happy,  
-And *me*... 
+And *me*...
 
 ... I'm a family man.'
 
@@ -13841,7 +13843,7 @@ And *me*...
 When Little Timmy scammed a guy,  
 That faking, taking boy -  
 He gave a self-contented sigh,  
-And settled down with joy. 
+And settled down with joy.
 
 'Oh smart and artful mighty me,  
 How sharp and sage and shrewd -  
@@ -13858,10 +13860,10 @@ And wise and slick,' he sighed.
 
 But Timmy didn't see the brick.  
 
-And Timmy fucking died. 
+And Timmy fucking died.
 
 
- 
+
 
 ----
 
@@ -13876,13 +13878,13 @@ I've sensed the seconds moving by.
 I've loitered, longing, lingered, lagged.  
 The minutes crawled.  
 The mornings dragged.   
- 
+
 Said Simple Steve: '... perhaps, alas,  
 There is no fish inside this glass.  
 
 Perhaps I ought to close the door.  
 
-... perhaps I'll wait a moment more.' 
+... perhaps I'll wait a moment more.'
 
 ----
 
@@ -13903,7 +13905,7 @@ I whispered: '... oh no.'
 
 He looked at the brick.  
 
-'... there's no fucking way that this isn't a trick.' 
+'... there's no fucking way that this isn't a trick.'
 
 ----
 
@@ -13921,13 +13923,13 @@ In the spots
 and in the spaces,  
 On the faces I could see -   
 There was butter in the places  
-Where it really shouldn't be. 
+Where it really shouldn't be.
 
 So I told him, turning yellow,  
 As the smell began to grow -  
 'You're a very lovely fellow...
 
-... butter really have to go.' 
+... butter really have to go.'
 
 ----
 
@@ -13953,7 +13955,7 @@ And Timmy fucking died.
 'Perhaps I could listen to podcasts,' he spoke -  
 'Or go to the gym with the fittest of folk.  
 Perhaps I could run, or perhaps I could hike -  
-Perhaps I could ride on a second-hand bike. 
+Perhaps I could ride on a second-hand bike.
 
 'Perhaps I could wander and gaze at the stars -  
 In search of the Moon or for Saturn and Mars.  
@@ -13975,7 +13977,7 @@ well it's just...
 There only sat an empty chair -  
 An empty space, just like before -  
 An empty place,  
-and nothing more. 
+and nothing more.
 
 'She is, she is,' they spoke again,  
 'She is,' they said and stood and then  
@@ -14020,8 +14022,8 @@ And some describe, and there's a few
 That do them all, just take 'inside',  
 Or-'
 
-'MARCO-' 
- 
+'MARCO-'
+
 'POLO!' all replied.
 
 ----
@@ -14127,7 +14129,7 @@ His liver lifts,
 his lungs expand,  
 For now they've space to lend a hand,  
 A place to be, a great expanse,  
-They breathe again, they take the chance. 
+They breathe again, they take the chance.
 
 His heart at last has room to beat,  
 There's space for all the food he'll eat,   
@@ -14154,10 +14156,10 @@ It's quiet, too quiet,
 too quiet by far.  
 A boom from above him  
 descends into cries.  
- 
+
 The silence is broken.   
 
-'... goddammit,' he sighs. 
+'... goddammit,' he sighs.
 
 ----
 
@@ -14195,7 +14197,7 @@ A reason *why*,' he sighed.
 So Little Timmy tied a noose.  
 
 And Timmy fucking died.  
- 
+
 
 ----
 
@@ -14223,7 +14225,7 @@ I love that you show me you love me each day.
 'I love you, I love you, I love who we are -  
 I love you for always, and further than far.  
 I'll love you forever, through thick and through thin.  
- 
+
 And that's why I want you to *never* move in.'  
 
 ----
@@ -14255,7 +14257,7 @@ He fell back down.
 
 And no one came.  
 
-And Timmy fucking died. 
+And Timmy fucking died.
 
 ----
 
@@ -14299,7 +14301,7 @@ And grinned with evil glee -
 
 And so he watched the moments pass  
 With smug, conceited pride.  
- 
+
 They tracked him down one day in class.
 
 And Timmy fucking died.
@@ -14324,13 +14326,13 @@ I saw it then,
 I see it yet,  
 I see the sordid silhouette,  
 And still I'm loath to look away,   
-And- 
+And-
 
 *oh.*
 
 I see.
 
-I might be gay. 
+I might be gay.
 
 ----
 
@@ -14353,7 +14355,7 @@ He fret and so,
 began to twitch,  
 And move  
 and shake  
-and yet... 
+and yet...
 
 'Perhaps,' said he, 'I only need  
 To scratch a little more -  
@@ -14454,7 +14456,7 @@ The moments,
 the minutes,  
 the months slipped away.  
 
-They never did find me. 
+They never did find me.
 
 But maybe,  
 one day.  
@@ -14477,14 +14479,14 @@ Not bitter but better, with bad things behind.
 This moment is ours for the taking, and so -  
 What say you?' he asked her.  
 
-She said to him: '... no.' 
+She said to him: '... no.'
 
 ----
 
 'A well-fitting shirt can do wonders,' she sighed -  
 'A neat pair of jeans with a portion of pride -  
 A little endeavour of effort,' she said -  
-'Is simply essential in getting ahead. 
+'Is simply essential in getting ahead.
 
 'Just get a good haircut -  
 a suit and a tie -  
@@ -14512,7 +14514,7 @@ The doctor replied with a shake of his head.
 
 He frowned at his patient.  
 
-'... how *dare* you?' he said. 
+'... how *dare* you?' he said.
 
 ----
 
@@ -14546,7 +14548,7 @@ And set for something more!
 'I've proved I've got the moves,' he said,   
 'I'm cool as cool can be -   
 There's no one else for miles ahead  
-As half as great as me! 
+As half as great as me!
 
 'And now it's time to raise the bar!'  
 He spoke with hope and pride.  
@@ -14573,7 +14575,7 @@ A third had heard the words ahead -
 And swiftly,  
 smugly,  
 died.
-     
+
 
 ----
 
@@ -14742,7 +14744,7 @@ All that we've said for a little chew more?
 What do you get if you go for it yet?  
 Something I bet  
 you might  
-re-gret. 
+re-gret.
 
 Oompa-loompa, doopity-dee,  
 If you are wise you'll listen to me.  
@@ -14776,10 +14778,10 @@ He said, 'with two of me!'
 
 But Timmy didn't know the truth.  
 His mother laughed with pride.  
- 
+
 She'd only keep a single youth.  
 
-And Timmy fucking died. 
+And Timmy fucking died.
 
 ----
 
@@ -14886,7 +14888,7 @@ I do not like it north or south.
 'I do not like it down below.  
 It looks a little like a toe.  
 It looks a little like a thumb.  
-I do not like it in my bum. 
+I do not like it in my bum.
 
 'I do not like it, not one bit.  
 I do not, do not, don't like it.  
@@ -14900,7 +14902,7 @@ I do not like that little dick.'
 'It's not just illegal,' he whispered with dread,  
 'It's totally *double-illegal*,' he said.  
 'I'd send you to prison,' he pondered with doubt -  
- 
+
 '... but each of them cancels the other one out.'
 
 ----
@@ -14908,7 +14910,7 @@ I do not like that little dick.'
 And he sat there, so excited,  
 So exuberant to see -  
 So devotedly delighted  
-At how perfect it would be! 
+At how perfect it would be!
 
 There was Quacker and Quacktina,  
 And Quacktacular and friend -  
@@ -15043,7 +15045,7 @@ But I'm lonely, all alone.
 
 It is gone,  
 but not forgotten.
- 
+
 How I love my mobile phone.
 
 ----
@@ -15071,7 +15073,7 @@ He clicked the thread.
 He stopped to read the words it said.   
 He made a face, a sigh, a frown.  
 
-He slouched a little lower down. 
+He slouched a little lower down.
 
 ----
 
@@ -15121,7 +15123,7 @@ and somewhere,
 he woke from his sleep -  
 For someone had whispered his name from the deep -  
 A message that travelled through space and through time!
-  
+
 But Sprog couldn't paint,  
 so he just wrote a rhyme.
 
@@ -15162,7 +15164,7 @@ Half a Pollock with their poop.
 And they'd tried to squash and tuck it  
 In wherever it would fit -  
 So she stood with mop and bucket,  
-And she whispered: 
+And she whispered:
 
 '... holy *shit.*'
 
@@ -15187,7 +15189,7 @@ But buddy, it's either give up or make do.
 
 Depends how you see it.
 
-It's all up to you. 
+It's all up to you.
 
 
 
@@ -15205,7 +15207,7 @@ I waited the week in a moment away.
 'I'm waiting,' I'd whisper,  
 'I'm waiting,' I'd say.  
 'I'm waiting for fame or for fortune and fate -  
-For good things are coming to those who can wait.' 
+For good things are coming to those who can wait.'
 
 I waited.  
 I waited.  
@@ -15217,7 +15219,7 @@ I waited until -
 
 I waited for longer.
 
-I'm waiting here still. 
+I'm waiting here still.
 
 ----
 
@@ -15235,9 +15237,9 @@ You're neat.
 You're fine.  
 You're fair.  
 
-You're strange. 
+You're strange.
 
-But I am too. 
+But I am too.
 
 ----
 
@@ -15283,7 +15285,7 @@ I whispered:
 Crunching, munching, chomp and chew -  
 Holey molars, grate and hew -  
 Grinding pearly whites a while -  
-Hasty tasting half a smile. 
+Hasty tasting half a smile.
 
 In between I push them all -  
 Thick ones, thin ones, big ones, small -  
@@ -15366,7 +15368,7 @@ with the sounds that I make?
 With the cries of delight  
 till the night was all through?  
 Oh no *wait*,' he recalled,  
-with a sigh: 
+with a sigh:
 
 '... that was you.'
 
@@ -15436,7 +15438,7 @@ The sheen upon her shiny skin -
 Her thrusting arch and rolling fin,  
 But now was time to end the fun.  
 
-She whispered: 'No. I'm almost done.' 
+She whispered: 'No. I'm almost done.'
 
 
 
@@ -15554,7 +15556,7 @@ I only blayme my salf in troof.
 I smiled to read the words he wrote -  
 his lovely line,   
 the nicest note  
-that ever passed an intercom. 
+that ever passed an intercom.
 
 I wrote him back.
 
@@ -15574,7 +15576,7 @@ my girl is neat.
 My girl is swell and super-sweet.  
 She likes my butt,  
 she calls me bae.  
-She wakes beside me every day. 
+She wakes beside me every day.
 
 My girl is cool,  
 my girl is cute.  
@@ -15582,7 +15584,7 @@ My girl is *beautiful* to boot.
 She likes my face,  
 she leaves me kissed.  
 
-She's all I need. 
+She's all I need.
 
 &nbsp;
 
@@ -15612,7 +15614,7 @@ The finest thoughts are thought, I think,
 Upon the seat that's near the sink,  
 Above the white and shiny throne  
 I love to love to call my own.
-  
+
 The fairest dreams in life to dream  
 I dream beside the shaving cream,  
 The soap to clean, the scrub to rub,  
@@ -15649,7 +15651,7 @@ but I will not.
 
 I must not poop.  
 
-It's all I've got. 
+It's all I've got.
 
 ----
 
@@ -15715,7 +15717,7 @@ I sang auld lang syne.
 
 I looked at my wristwatch.  
 
-It said: *half past nine.* 
+It said: *half past nine.*
 
 ----
 
@@ -15787,7 +15789,7 @@ or taykes a bite
 by nite and day -  
 i gets a shok.
 
-but im okay. 
+but im okay.
 
 ----
 
@@ -15810,9 +15812,9 @@ He blinked at me slowly.
 He just... shook his head.  
 I watched as he turned in the doorway to go.  
 
-I pondered a moment. 
+I pondered a moment.
 
-I whispered: '... oh no.' 
+I whispered: '... oh no.'
 
 ----
 
@@ -15846,7 +15848,7 @@ Remember, you thought they would think you a fool?
 They'd think you were witless, unwise and uncool?  
 They'd think you were simple, or stupid and small?  
 
-Well *nobody* thinks of you. 
+Well *nobody* thinks of you.
 
 Ever.  
 
@@ -15854,7 +15856,7 @@ At all.
 
 ----
 
->There was one valuable lesson I took away from it: if you like Internet porn and boats, never get married. 
+>There was one valuable lesson I took away from it: if you like Internet porn and boats, never get married.
 
 
 'I love you, I love you, I love you,' he said -  
@@ -15884,11 +15886,11 @@ I pooped in your home!
 I pooped on your couch  
 and I wiped with your comb!  
 But now that you've found me,  
-I have to know how!' 
+I have to know how!'
 
 His father responded:  
 
-'... you're still pooping now.' 
+'... you're still pooping now.'
 
 ----
 
@@ -15973,7 +15975,7 @@ But nothing really seemed to cope.
 
 Until, that is, the fated day  
 They formed a plan and found a way,  
-For all it took's a simple wall. 
+For all it took's a simple wall.
 
 Just thirteen *thousand* miles.  
 
@@ -15990,7 +15992,7 @@ from inside with delight.
 
 He waited a moment.  
 
-'... you're *shitting* me, right?' 
+'... you're *shitting* me, right?'
 
 ----
 
@@ -16013,7 +16015,7 @@ By sitting soft on someone's face.
 'Is built on sex and revelry -  
 And it's for *you*,' she said with cheer.  
 
-Her mother said: '... it's lovely, dear.' 
+Her mother said: '... it's lovely, dear.'
 
 ----
 
@@ -16022,7 +16024,7 @@ A babble, a bellow, a din of disdain -
 A shrieking of terror,  
 And temper and hate -   
 
-They listened with horror. 
+They listened with horror.
 
 They whispered: '... it's *great*.'
 
@@ -16089,7 +16091,7 @@ You're swell
 as well  
 as strange.  
 
-You're sweetly-so-uniquely *you.* 
+You're sweetly-so-uniquely *you.*
 
 You're perfect.
 
@@ -16105,7 +16107,7 @@ They never *really* wanted me.
 
 So while she slumbered, softly slept,  
 I slowly rose with care and crept  
-To where she lay below me, south - 
+To where she lay below me, south -
 
 I farted in her open mouth.  
 
@@ -16155,7 +16157,7 @@ We whiled away the afternoon
 Until the time for tea and soon  
 He'd call us in to watch him plan.  
 
-And so, directions: 
+And so, directions:
 
 open can.  
 
@@ -16178,7 +16180,7 @@ We took the bus to pleasure town.
 'We're in the midst of penis prime.   
 It's half past puss.  
 It's sexy time.  
-We're *fucking*, mom,' I whispered slow. 
+We're *fucking*, mom,' I whispered slow.
 
 She leaned in close.  
 
@@ -16217,10 +16219,10 @@ not...
 Two old legs with creaking knees -  
 Thumbs that crack, and lungs that wheeze -  
 Arms that shake, and eyes that blur -  
-Hands a ghost of what they were. 
+Hands a ghost of what they were.
 
 Two old ears that strain to hear -  
-Lips a shade of yesteryear. 
+Lips a shade of yesteryear.
 
 Dreams forgotten.  
 
@@ -16246,7 +16248,7 @@ I'm only thirteen now!'
 
 And so he clapped his hands with glee -  
 He grabbed the cash with pride.  
- 
+
 But Tim would live to twenty three.
 
 And Timmy fucking died.
@@ -16319,7 +16321,7 @@ To where the rolling rivers flow,
 And drive them 'round from high to low,  
 You crazy baby-sitting pro!'
 
-And off they went. 
+And off they went.
 
 I did not go.  
 
@@ -16330,7 +16332,7 @@ I took the fucking money though.
 She sang with the voice of an angel above -  
 A bold little ballad of beauty and love -  
 A song to enjoy in a sweet summer spot -  
-She sang with a passion. 
+She sang with a passion.
 
 They said: '... could you not?'
 
@@ -16474,7 +16476,7 @@ I need opportunity.
 This isn't it.  
 And that's why I'm ending my contract.  
 
-I quit. 
+I quit.
 
 ----
 
@@ -16517,7 +16519,7 @@ I do not, not what, what and so -
 I do not pause to stare ahead.  
 I do not look to see what's said.  
 I do not stop to sit and see.  
- 
+
 I do not read.  
 
 I click agree.  
@@ -16589,7 +16591,7 @@ Leto,
 do be gone.  
 Prepare your bags and travel on.   
 You do not roll.  
-You do not rock. 
+You do not rock.
 
 You are, in fact, a massive cock.
 
@@ -16609,7 +16611,7 @@ For just a little while.
 But time was only passing by  
 Before you had to go -  
 And though I understand the why,  
-I wish it wasn't so. 
+I wish it wasn't so.
 
 You're always more than just a pet,  
 And that can never end -  
@@ -16630,12 +16632,12 @@ I'm not so young,
 to tell the truth -  
 I'm twice the man I was before -  
 I'm twenty-nine.  
-Or maybe more. 
+Or maybe more.
 
 I ain't exactly flush with time -  
 And maybe, yeah, I've passed my prime -  
 Perhaps the candles set for me  
-Are gettin' kinda bright to see. 
+Are gettin' kinda bright to see.
 
 But all the same, and all the while,  
 I've cause to laugh, I've cause to smile,  
@@ -16676,11 +16678,11 @@ And some only work in the city at night.
 But one of them's endlessly better than these.  
 He sends us protection, tomatoes and cheese.  
 He does what he needs to.  
-He does what he can. 
+He does what he can.
 
-*The Pizza Provider.* 
+*The Pizza Provider.*
 
-My god, what a man. 
+My god, what a man.
 
 ----
 
@@ -16724,7 +16726,7 @@ Until the words have all been read,
 And so with soundless, eager glee,  
 His favoured sub he chooses then,  
 And reads the post that's first to see  
-And laughs and smiles a while again. 
+And laughs and smiles a while again.
 
 He reads the next, the next, the next,  
 Selects an extra post to read,  
@@ -16747,7 +16749,7 @@ i no he no,
 i allways try  
 to mayke him sced.  
 
-he say 'is you!' 
+he say 'is you!'
 
 he pet my hed.   
 
@@ -16831,7 +16833,7 @@ It sat and it waited and held her in thrall.
 'Good gracious,' she said.  
 She silently gazed at the glory ahead.  
 The longing she fancied and feared to admit -  
-The gossamer glimmer of shimmering spit. 
+The gossamer glimmer of shimmering spit.
 
 'I want it,' she murmured.  
 'I need it,' she spoke.  
@@ -16839,7 +16841,7 @@ She circled the hollow.
 She gave it a stroke.  
 She lifted her hands to her lips with a sigh.   
 
-She bought the zucchini. 
+She bought the zucchini.
 
 I still don't know why.
 
@@ -16889,9 +16891,9 @@ It simply doesn't work, you see.
 'I'm not the girl I was before -  
 I just can't do it anymore!  
 I can't do *this*,' she said with doubt.  
-The judge replied and sighed: 
+The judge replied and sighed:
 
-'... get out.' 
+'... get out.'
 
 
 ----
@@ -16995,13 +16997,13 @@ The soggy sort I hook with string.
 The water chum I sought to snag.  
 A fated bait -  
 A piscine pal -  
-My finny funny gilly gal. 
+My finny funny gilly gal.
 
 'There is a creature in my case -  
 A swimming soul inside the space.  
 A fellow made of slime,' he said.  
 
-'But don't you worry though - he's dead.' 
+'But don't you worry though - he's dead.'
 
 
 ----
@@ -17016,7 +17018,7 @@ A work of pain, to make it clear -
 A grim device -  
 A tool of dread -  
 Or something even worse,' he said.  
- 
+
 'But all the same, we noticed quick -  
 It's just the *massive* rubber dick  
 You must have packed to use indoors.
@@ -17099,7 +17101,7 @@ from left to right,
 and to and fro,  
 and on  
 until  
-I say: 
+I say:
 
 '... hello.'
 
@@ -17176,7 +17178,7 @@ He looked at his wife as she slept in the bed.
 
 He lifted the covers.  
 
-'... let's do it,' he said. 
+'... let's do it,' he said.
 
 
 ----
@@ -17187,7 +17189,7 @@ and explore it
 till it bleeds!  
 Poke and prick it,  
 prod and flick it  
-with the force it really needs! 
+with the force it really needs!
 
 Make it painful  
 and disdainful,  
@@ -17195,7 +17197,7 @@ make it sore
 and make it sting!  
 If you're gentle,  
 sentimental,  
-then she'll *never* feel a thing! 
+then she'll *never* feel a thing!
 
 Be excessive,  
 be aggressive,  
@@ -17225,7 +17227,7 @@ with reluctance and dread.
 'Come straight through the house  
 to the *bedroom*,' she'd said.  
 The doorway was silent.  
-He entered with care. 
+He entered with care.
 
 'Come join me,' she told him,  
 'there's pizza to share!'  
@@ -17241,7 +17243,7 @@ A park of enclosures for humans like you -
 Where people can look through your glass in a line.  
 For this, I will pay yo-'
 
-'Bro, where do I sign?' 
+'Bro, where do I sign?'
 
 ----
 
@@ -17382,11 +17384,11 @@ And by the time it's time to vote,
 I'll oversee the Earth!'  
 
 He picked his gun and planned it through -  
-He took the shot with pride. 
+He took the shot with pride.
 
-But later, so did others too. 
+But later, so did others too.
 
-And Timmy fucking died. 
+And Timmy fucking died.
 
 ----
 
@@ -17452,7 +17454,7 @@ She opens her eyes and I love her anew.
 
 I tell her: '... you're perfect.'
 
-She whispers: '... fuck you.' 
+She whispers: '... fuck you.'
 
 
 
@@ -17502,7 +17504,7 @@ He spoke with hope and pride.
 
 But Timmy had an allergy.  
 
-And Timmy fucking died. 
+And Timmy fucking died.
 
 
 
@@ -17514,7 +17516,7 @@ Improper, mistaken decisions we made -
 But *never* repeated,' they whispered, and then -  
 They did it again,  
 and again,  
-and again. 
+and again.
 
 ----
 
@@ -17532,10 +17534,10 @@ Just whatever goes inside -
 In the tightly-woven cotton,   
 Buried distant, deep and far -  
 There are things that I've forgotten...
- 
+
 But I don't know what they are.  
 
- 
+
 
 ----
 
@@ -17631,7 +17633,7 @@ My heart had just full-stopped.
 My verbs demanded actions -  
 I'd lost apostrophe -  
 I suffered from contractions -  
-I'd punctuated *me.* 
+I'd punctuated *me.*
 
 My words had all been spoken -  
 My fables lost to fate -  
@@ -17701,7 +17703,7 @@ In dreams we shall wander and ponder and fly.
 'Oh daddy, we love you forever,' they sighed -  
 'You fill us with hope and with promise and pride!  
 You're flawless and peerless and perfect to see -  
-You're really, sincerely the best you could be! 
+You're really, sincerely the best you could be!
 
 'You're sprightful, delightful, terrific and true -  
 There's no one as fully fantastic as you!  
@@ -17770,7 +17772,7 @@ I'll put them together!' he said with delight.
 
 It turned out successful.  
 
-Two tongs make a right. 
+Two tongs make a right.
 
 ----
 
@@ -17779,7 +17781,7 @@ I crushed them as surely as much as I should -
 I squished and I squashed and I squeezed in his room -  
 He whimpered with pleasure and joy.
 
-I assume. 
+I assume.
 
 ----
 
@@ -17787,7 +17789,7 @@ You can keep it with your panties,
 In a cupboard by your bed -  
 In a suitcase with your scanties,  
 Under pillows,  
-under head. 
+under head.
 
 You can use it when you need it,  
 And you'll always know it's near -  
@@ -17867,7 +17869,7 @@ you're pushing a lie -
 You're taking the money from those who would try.  
 It's plainly apparent and patently true.
 
-You're not ending cancer. 
+You're not ending cancer.
 
 Go fuck yourself, Sue.
 
@@ -17876,7 +17878,7 @@ Go fuck yourself, Sue.
 I know that I don't always see you enough -  
 With work and with kids and a marriage, it's tough.  
 You wake and you take it by dawn and by day -  
-And noon turns to evening, and time slips away. 
+And noon turns to evening, and time slips away.
 
 'We'll have to do something,' we said when we met -  
 But you and me, brother, we tend to forget.  
@@ -17888,7 +17890,7 @@ And life doesn't always leave room for the rest.
 But then, with a smile, I remember it's you.  
 We say that we'll meet, and eventually do.  
 You're there when I need you, and that doesn't end.  
-So buddy, be seeing you... 
+So buddy, be seeing you...
 
 maybe.
 
@@ -17948,7 +17950,7 @@ I'm a finch that's feeling lousy.
 
 I'm an Ostrich.
 
-Always tired. 
+Always tired.
 
 ----
 
@@ -18009,7 +18011,7 @@ and she sees it's from you.
 She taps on the notice  
 to read it alone -  
 And there, on the screen,  
-it's your cock on her phone.' 
+it's your cock on her phone.'
 
 He stood in the door  
 and I waited behind -  
@@ -18020,7 +18022,7 @@ amassed in my head.
 
 I went for the quickest.  
 
-'... I'm sorry,' I said. 
+'... I'm sorry,' I said.
 
 
 
@@ -18034,7 +18036,7 @@ Depressing, degrading, and lower than low!
 ''Twas truly horrendous,' he said with a sigh -  
 'Horrific!' he sobbed with a tear in his eye.  
 She listened with pity and nodded her head.  
-'What was it?' she whispered. 
+'What was it?' she whispered.
 
 '... twas *retail*,' he said.
 
@@ -18067,7 +18069,7 @@ And trembled and tremored in weakness as well.
 
 They whimpered exposed to the winter and wept -  
 And when they were weaker, surrendered and slept.  
-They perished in frozen discomfort, afraid. 
+They perished in frozen discomfort, afraid.
 
 Whatever.
 
@@ -18081,7 +18083,7 @@ A flash of the flesh,
 or the pink of a lap -  
 The sound of a flush  
 as it flows in the bend.
-  
+
 They're baking a dookie.
 
 He's making a friend.
@@ -18115,7 +18117,7 @@ She looks in the mirror.
 She pauses a while.  
 'Good morning, good morning,'  
 she says with a smile.  
-'And who is this *beautiful* lady I see?' 
+'And who is this *beautiful* lady I see?'
 
 She waits for an answer.
 
@@ -18166,7 +18168,7 @@ Enjoy what you're doing!
 It's all up to you!  
 Placentas are meant to be shown to a few!  
 And if you're exhausted or weary and beat -  
-No matter! 
+No matter!
 
 You'll always have something to eat.
 
@@ -18305,7 +18307,7 @@ From dairy to doughnuts and down every aisle.
 A regular journey -  
 a well-travelled track.  
 
-She picks up the dog food... 
+She picks up the dog food...
 
 and then puts it back.
 
@@ -18320,7 +18322,7 @@ The wind was a sigh -
 And so, in the silence that followed goodbye -   
 He stood as she stared in bewilderment, struck.  
 
-His sister was watching. 
+His sister was watching.
 
 He whispered: '... oh *fuck*.'
 
@@ -18389,9 +18391,9 @@ To lead me through the final door
 Till all that *is* and *was* before   
 Is nothing more than dreams at night -  
 
-I will not fret. 
+I will not fret.
 
-I will not fight. 
+I will not fight.
 
 ----
 
@@ -18405,7 +18407,7 @@ A size-defying trousersnake!
 'Who's packing something *big* below!  
 A meaty rod -  
 A monster cock -  
-A member made of weighty stock! 
+A member made of weighty stock!
 
 'I need a man,' she stated quick,  
 'Who wields a huge and hefty dick!'  
@@ -18414,7 +18416,7 @@ She found the man.
 
 He showed her it.  
 
-She whispered: '... holy fucking shit.' 
+She whispered: '... holy fucking shit.'
 
 ----
 
@@ -18426,7 +18428,7 @@ How your character will be.
 They'll be lowly raised and humble -  
 They'll have grief and pain in store -  
 But they won't concede or crumble  
-For they're prophesised for *more.* 
+For they're prophesised for *more.*
 
 They're abandoned as a baby,  
 Or they're taken thence by force -  
@@ -18436,7 +18438,7 @@ Or they might be orphans, maybe
 They'll have one defining feature -  
 They'll be strong and quick and keen -  
 They'll be guided by a teacher -  
-And their eyes, well... 
+And their eyes, well...
 
 ... they'll be green.  
 
@@ -18447,13 +18449,13 @@ And their eyes, well...
 His eyes were the size of the Sun and the stars -  
 His nose was as round as a ball -  
 His mouth was as wide as the heavens and Mars,  
-And his legs were incredibly small. 
+And his legs were incredibly small.
 
 So he looked at the shape of the man he'd designed,  
 And he smiled with a shake of his head.  
 'It looks nothing at all like my face,' he opined -  
 
-'... so it's totally *perfect,*' he said. 
+'... so it's totally *perfect,*' he said.
 
 ----
 
@@ -18490,9 +18492,9 @@ When I saw him in the halls.
 There was really nothing to him,  
 And he wasn't much to view -  
 He was *Ed* to those who knew him...
- 
+
 But to me,  
-he's Ginger 2. 
+he's Ginger 2.
 
 ----
 
@@ -18513,7 +18515,7 @@ He spoke and softly sighed.
 
 But Little Timmy was a horse.  
 
-And Timmy fucking died. 
+And Timmy fucking died.
 
 ----
 
@@ -18529,7 +18531,7 @@ And all my words profound -
 My heart,  
 a tortured, beating wreath,  
 My breath,  
-a secret sound - 
+a secret sound -
 
 If all the dreams I dreamed in sleep  
 Were vast and sage and true -  
@@ -18572,7 +18574,7 @@ He awaited their reply -
 He had asked his burning question,  
 He had thought to take his shot -  
 And he hoped to find an answer,  
-But they only whispered: 
+But they only whispered:
 
 '... what?'
 
@@ -18612,7 +18614,7 @@ No breath.
 He stares at the place where he ran out of luck.  
 He peers through the window.  
 
-He whispers: 
+He whispers:
 
 '... the *fuck*?'
 
@@ -18644,7 +18646,7 @@ That if it's all the same to you -
 Despite your choice  
 To vape and blow -  
 
-I do not want your lung farts, bro. 
+I do not want your lung farts, bro.
 
 ----
 
@@ -18726,7 +18728,7 @@ And they give what they've got.
 They hold you together.  
 They show you what's true.  
 
-We don't get to choose them. 
+We don't get to choose them.
 
 I'm glad I had you.
 
@@ -18737,7 +18739,7 @@ I'm glad I had you.
 She speaks the words he hates to hear.  
 A constant voice inside his ear.  
 A grudging sigh.  
-A judging frown. 
+A judging frown.
 
 He slowly turns the volume down.   
 
@@ -18751,7 +18753,7 @@ In shining beams of light.
 He dreamt of birds and herds of beasts -  
 Of clouds and moons and stars -  
 Of dancing cats and fancy feasts  
-On Jupiter and Mars. 
+On Jupiter and Mars.
 
 He dreamt of all that was before -  
 And all that's still to be -  
@@ -18786,7 +18788,7 @@ Whenever Tim would pass.
 'A momma's boy.   
 A *wimp.*  
 With arms as soft as moistened bread,  
-And legs as twice as limp!' 
+And legs as twice as limp!'
 
 So Timmy thought to prove them wrong -  
 He chose his weights with pride.  
@@ -18815,7 +18817,7 @@ In broken sleep and haunted dreams.
 It tells me dark and secret things.  
 It raises hands to hold me down,  
 And all the cold and pain it brings  
-Is thrice enough to make me drown. 
+Is thrice enough to make me drown.
 
 But I have read this tale before.  
 And I can tell you this, my friend -  
@@ -18844,7 +18846,7 @@ Then fuck right off the internet.
 
 ----
 
->My ex was a teaching assistant and one of the parents found photography blog photos of her... the photos were removed and re-uploaded under a pseudonym instead. 
+>My ex was a teaching assistant and one of the parents found photography blog photos of her... the photos were removed and re-uploaded under a pseudonym instead.
 
 'Good lord!' said the parent,  
 'this woman has *breasts!*  
@@ -18885,7 +18887,7 @@ And Larry felt something inside him ignite.
 'It's just that I feel like I've known you a while.'  
 And then, when he knew that he'd clicked on her thread -  
 
-'... but actually, maybe I haven't,' he said. 
+'... but actually, maybe I haven't,' he said.
 
 
 ----
@@ -18925,11 +18927,11 @@ On and on and on you're crawling,
 Sinking, drowning, flailing, falling,  
 Failing, gaining nothing, never.  
 
-Every second lasts forever. 
+Every second lasts forever.
 
 
 
- 
+
 
 ----
 
@@ -18954,4 +18956,3 @@ Pay your taxes,
 or you're *fucked.*
 
 ----
-

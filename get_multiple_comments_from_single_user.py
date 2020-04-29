@@ -31,3 +31,6 @@ with open('comments.out', "w", encoding="utf-8") as f:
     for id in reddit.redditor(username).comments.new(limit=None):
         comment = reddit.comment(id)
         f.write(comment.body)
+        f.write("\n\n")
+        f.write(comment.submission.url)
+        f.write("\n----\n")
