@@ -32,5 +32,5 @@ with open('comments.out', "w", encoding="utf-8") as f:
         comment = reddit.comment(id)
         f.write(comment.body)
         f.write("\n\n")
-        f.write(comment.submission.url)
+        f.write(comment.permalink)
         f.write("\n----\n")
