@@ -48,8 +48,10 @@ dt_string = day_of_week + ", " + dt_string
 print(dt_string)
 
 year = datetime.date.today().year
-# TODO:
+
+# construct filename
 output_filename = ""
+output_filename += "highlights/"
 output_filename += now.strftime("%Y-%m-%d-")
 output_filename += day_of_week[0:3]
 output_filename += ".md"
@@ -65,6 +67,12 @@ description = "Date and time of publication of these highlights: **"
 description += dt_string
 description += "**."
 description += "\n\n"
+
+# add motivation link
+
+# add SMMRY API credit
+
+# add PRAW API credit
 
 # write title and description to file
 fp.write(title)
