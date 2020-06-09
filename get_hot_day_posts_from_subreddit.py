@@ -2,6 +2,7 @@ import praw
 import get_smmry_of_article
 import datetime
 import calendar
+from smmryapi import SmmryAPI
 
 # Take in a file called "password.pass" and get three strings from it:
 # - client_id
@@ -71,6 +72,9 @@ fp.write(description)
 
 submissions = reddit.subreddit(subreddit_name).hot(limit=7)
 
+# initialize SMMRY API
+smmry = SmmryAPI(api_key)
+
 for submission in submissions:
     title = submission.title
     if "Daily Discussion" not in title and "Looking For Participants" not in title:
@@ -87,7 +91,7 @@ for submission in submissions:
         output_string += "Summary of [original article]("
         output_string += url
         output_string += "):\n\n"
-        summary = get_smmry_of_article.get_summary(url, api_key)
+        summary = get_smmry_of_article.get_summary(url, api_key, smmry)
         output_string += "> "
         output_string += summary
         output_string += "\n\n"
