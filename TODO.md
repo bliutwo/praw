@@ -19,7 +19,9 @@ Traceback (most recent call last):
 smmryapi.SmmryAPIException: 3: THE PAGE IS IN AN UNRECOGNISABLE FORMAT
 ```
 
-- [ ] Modify `get_hot_day_posts_from_subreddit.py` and/or `get_smmry_of_article.py` to handle this exception.
+- [x] Modify `get_hot_day_posts_from_subreddit.py` and/or `get_smmry_of_article.py` to handle this exception.
+
+All exceptions are handled now.
 
 - [ ] Write script that commits to repo automatically
   - [ ] Ensure that `get_hot_day_posts_from_subreddit.py` outputs proper `[date].md` filename formatting.
