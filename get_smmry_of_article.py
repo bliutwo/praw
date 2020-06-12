@@ -8,7 +8,7 @@ def get_summary(url: str, api_key: str, smrry) -> str:
         summary = s.sm_api_content
     except:
         summary = "ERROR: "
-        summary += sys.exc_info()[0]
+        summary += str(sys.exc_info()[0])
     return summary
 
 
