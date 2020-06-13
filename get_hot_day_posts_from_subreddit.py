@@ -78,18 +78,18 @@ description += "\n\n"
 fp.write(title)
 fp.write(description)
 
-submissions = reddit.subreddit(subreddit_name).hot(limit=7)
+submissions = reddit.subreddit(subreddit_name).hot(limit=8)
 
 # initialize SMMRY API
 smmry = SmmryAPI(api_key)
 
 for submission in submissions:
     title = submission.title
-    if "Daily Discussion" not in title and "Looking For Participants" not in title:
+    if "Daily Discussion" not in title and "Looking For Participants" not in title and "Join our Official Discord" not in title:
         submission.comment_sort = "top"
         top_level_comments = list(submission.comments)
         top_comment = None
-        top_comment_author = None # TODO
+        top_comment_author = None
         if top_level_comments:
             top_comment = top_level_comments[0].body
             top_comment = top_comment.replace('\n', ' ').replace('\r', '')
