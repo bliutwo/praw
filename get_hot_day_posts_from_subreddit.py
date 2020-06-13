@@ -88,9 +88,12 @@ for submission in submissions:
     if "Daily Discussion" not in title and "Looking For Participants" not in title:
         submission.comment_sort = "top"
         top_level_comments = list(submission.comments)
-        top_comment = top_level_comments[0].body
-        top_comment = top_comment.replace('\n', ' ').replace('\r', '')
-        top_comment_author = top_level_comments[0].author.name
+        top_comment = None
+        top_comment_author = None # TODO
+        if top_level_comments:
+            top_comment = top_level_comments[0].body
+            top_comment = top_comment.replace('\n', ' ').replace('\r', '')
+            top_comment_author = top_level_comments[0].author.name
         output_string = ""
         output_string += "## "
         output_string += title
@@ -103,16 +106,20 @@ for submission in submissions:
         output_string += "> "
         output_string += summary
         output_string += "\n\n"
-        username = "`/u/"
-        username += top_comment_author
-        username += "`"
-        output_string += username
-        output_string += " [comments]("
+        if top_comment and top_comment_author:
+            username = "`/u/"
+            username += top_comment_author
+            username += "`"
+            output_string += username
+            output_string += " "
+        output_string += "[comments]("
         reddit_url = "https://www.reddit.com" + submission.permalink
         output_string += reddit_url
-        output_string += "):\n\n"
-        output_string += "> "
-        output_string += top_comment
+        output_string += ")"
+        if top_comment:
+            output_string += ":\n\n"
+            output_string += "> "
+            output_string += top_comment
         output_string += "\n\n"
         fp.write(output_string)
 
