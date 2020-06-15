@@ -57,7 +57,7 @@ output_filename += day_of_week[0:3]
 output_filename += ".md"
 
 # open output file
-fp = open(output_filename, "w")
+fp = open(output_filename, "w", encoding='utf-8')
 
 # add title and description
 title = "# Today's Highlights from /r/"
@@ -85,7 +85,7 @@ smmry = SmmryAPI(api_key)
 
 for submission in submissions:
     title = submission.title
-    if "Daily Discussion" not in title and "Looking For Participants" not in title and "Join our Official Discord" not in title:
+    if "Daily Discussion" not in title and "Looking For Participants" not in title and "Join our Official Discord" not in title and "For US Patients Diagnosed" not in title:
         submission.comment_sort = "top"
         top_level_comments = list(submission.comments)
         top_comment = None
