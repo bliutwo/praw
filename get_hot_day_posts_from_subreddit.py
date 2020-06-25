@@ -92,7 +92,7 @@ for submission in submissions:
         top_comment_author = None
         if top_level_comments:
             top_comment = top_level_comments[0].body
-            top_comment = top_comment.replace('\n', ' ').replace('\r', '')
+            top_comment = top_comment.replace('\n', '\n> ').replace('\r', '')
             top_comment_author = top_level_comments[0].author.name
         output_string = ""
         output_string += "## "
