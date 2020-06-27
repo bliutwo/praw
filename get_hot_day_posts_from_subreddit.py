@@ -50,8 +50,8 @@ print(dt_string)
 year = datetime.date.today().year
 
 # construct filename
-output_filename = ""
-output_filename += "highlights/"
+output_filename = subreddit_name
+output_filename += "_highlights/"
 output_filename += now.strftime("%Y-%m-%d-")
 output_filename += day_of_week[0:3]
 output_filename += ".md"
@@ -103,6 +103,8 @@ for submission in submissions:
         output_string += url
         output_string += "):\n\n"
         summary = get_smmry_of_article.get_summary(url, api_key, smmry)
+        if "ERROR:" in summary:
+            summary = "Sorry, we were unable to get the summary of this article."
         output_string += "> "
         output_string += summary
         output_string += "\n\n"
