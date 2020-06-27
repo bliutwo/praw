@@ -54,6 +54,7 @@ output_filename = subreddit_name
 output_filename += "_highlights/"
 output_filename += now.strftime("%Y-%m-%d-")
 output_filename += day_of_week[0:3]
+output_filename += "-"
 output_filename += dt_string[-5:-3]
 output_filename += dt_string[-2:]
 output_filename += ".md"
