@@ -90,7 +90,7 @@ for submission in submissions:
         top_level_comments = list(submission.comments)
         top_comment = None
         top_comment_author = None
-        if top_level_comments:
+        if top_level_comments and top_level_comments[0].author:
             top_comment = top_level_comments[0].body
             top_comment = top_comment.replace('\n', '\n> ').replace('\r', '')
             top_comment_author = top_level_comments[0].author.name
