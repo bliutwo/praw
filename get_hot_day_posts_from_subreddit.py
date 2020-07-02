@@ -99,6 +99,7 @@ for submission in submissions:
             top_comment_author = top_level_comments[0].author.name
         if "As a reminder, this subreddit" in top_comment:
             top_comment = top_level_comments[1].body
+            top_comment = top_comment.replace('\n', '\n> ').replace('\r', '')
             top_comment_author = top_level_comments[1].author.name
         output_string = ""
         output_string += "## "
