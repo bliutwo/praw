@@ -1,10 +1,10 @@
-# Spain's large-scale study on the coronavirus indicates just 5% of its population has developed antibodies, strengthening evidence that a so-called herd immunity to Covid-19 is "unachievable,". Findings come from a nationwide representative sample of more than 61,000 participants
+# FL Gov. DeSantis quietly signs controversial bill requiring parental consent for abortions. This new law is absolutely fucking absurd. They imply that teen girls are too immature to decide to abort, but they have no problem with the same teen girl raising a baby.
 
-Summary of [original article](https://edition.cnn.com/2020/07/06/health/spain-coronavirus-antibody-study-lancet-intl/index.html):
+Summary of [original article](https://www.sun-sentinel.com/news/politics/fl-ne-nsf-desantis-signs-abortion-parental-consent-bill-20200630-df4asudw25g5jg32vge32gfuje-story.html):
 
-> Sorry, we were unable to get the summary of this article.
+> Our website is currently unavailable in most European countries. We are engaged on the issue and committed to looking at options that support our full range of digital offerings to the EU market. We continue to identify technical compliance solutions that will provide all readers with our award-winning journalism.
 
-`/u/CivilServantBot` [comments](https://www.reddit.com/r/science/comments/hm5z7s/spains_largescale_study_on_the_coronavirus/):
+`/u/Barbuckles` [comments](https://www.reddit.com/r/TwoXChromosomes/comments/hn61md/fl_gov_desantis_quietly_signs_controversial_bill/):
 
-> Welcome to r/science! Our team of 1,500+ moderators will remove comments if they are jokes, anecdotes, memes, off-topic or medical advice ([rules](https://www.reddit.com/r/science/wiki/rules#wiki_comment_rules)). We encourage respectful discussion about the science of the post.
+> But if she's 17, she can get married without parental consent.
 
