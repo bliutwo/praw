@@ -1,10 +1,10 @@
-# FL Gov. DeSantis quietly signs controversial bill requiring parental consent for abortions. This new law is absolutely fucking absurd. They imply that teen girls are too immature to decide to abort, but they have no problem with the same teen girl raising a baby.
+# Pathologist Found Blood Clots In 'Almost Every Organ' During Autopsies On COVID-19 Patients
 
-Summary of [original article](https://www.sun-sentinel.com/news/politics/fl-ne-nsf-desantis-signs-abortion-parental-consent-bill-20200630-df4asudw25g5jg32vge32gfuje-story.html):
+Summary of [original article](https://fox8.com/news/pathologist-found-blood-clots-in-almost-every-organ-during-autopsies-on-covid-19-patients/):
 
-> Our website is currently unavailable in most European countries. We are engaged on the issue and committed to looking at options that support our full range of digital offerings to the EU market. We continue to identify technical compliance solutions that will provide all readers with our award-winning journalism.
+> Autopsies on people who died of the coronavirus are helping doctors understand how the disease affects the body - and one of the most remarkable findings concerned blood clotting, a pathologist says. Some Covid-19 patients are known to develop blood clotting issues, but the degree and the extent to which that occurs was described as "Dramatic" by Rapkiewicz. Autopsies have found a very low incidents of myocarditis, Rapkiewicz said.
 
-`/u/Barbuckles` [comments](https://www.reddit.com/r/TwoXChromosomes/comments/hn61md/fl_gov_desantis_quietly_signs_controversial_bill/):
+`/u/bobinush` [comments](https://www.reddit.com/r/science/comments/hoptz8/pathologist_found_blood_clots_in_almost_every/):
 
-> But if she's 17, she can get married without parental consent.
+> I am currently a covid-19 patient in Sweden. I've been getting "blood thinners" since day 1 and they say they do this to all covid-19 patients here.
 
