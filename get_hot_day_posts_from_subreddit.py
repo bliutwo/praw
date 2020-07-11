@@ -130,6 +130,7 @@ for submission in submissions:
             output_string += "> "
             output_string += top_comment
         output_string += "\n\n"
+        output_string += "[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)\n\n"
         fp.write(output_string)
 
 fp.close()
