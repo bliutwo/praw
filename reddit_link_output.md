@@ -1,10 +1,12 @@
-# Pathologist Found Blood Clots In 'Almost Every Organ' During Autopsies On COVID-19 Patients
+# Coronavirus updates: 366,000 Californians infected, shutdowns ravage local businesses
 
-Summary of [original article](https://fox8.com/news/pathologist-found-blood-clots-in-almost-every-organ-during-autopsies-on-covid-19-patients/):
+Summary of [original article](https://www.sacbee.com/news/coronavirus/article244296622.html):
 
-> Autopsies on people who died of the coronavirus are helping doctors understand how the disease affects the body - and one of the most remarkable findings concerned blood clotting, a pathologist says. Some Covid-19 patients are known to develop blood clotting issues, but the degree and the extent to which that occurs was described as "Dramatic" by Rapkiewicz. Autopsies have found a very low incidents of myocarditis, Rapkiewicz said.
+> Sorry, we were unable to get the summary of this article.
 
-`/u/bobinush` [comments](https://www.reddit.com/r/science/comments/hoptz8/pathologist_found_blood_clots_in_almost_every/):
+`/u/fluboy1257` [comments](https://www.reddit.com/r/Coronavirus/comments/ht5sxg/coronavirus_updates_366000_californians_infected/):
 
-> I am currently a covid-19 patient in Sweden. I've been getting "blood thinners" since day 1 and they say they do this to all covid-19 patients here.
+> Californians, stay the fuck out of Oregon unless you wear a mask
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
 
