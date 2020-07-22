@@ -1,12 +1,14 @@
-# Coronavirus updates: 366,000 Californians infected, shutdowns ravage local businesses
+# Cannabis May Reduce Deadly COVID-19 Lung Inflammation: Researchers Explain Why
 
-Summary of [original article](https://www.sacbee.com/news/coronavirus/article244296622.html):
+Summary of [original article](https://www.forbes.com/sites/emilyearlenbaugh/2020/07/06/cannabis-may-reduce-deadly-covid-19-lung-inflammation-researchers-explain-why/):
 
-> Sorry, we were unable to get the summary of this article.
+> For one thing, the authors explain that previous research has shown that CBD can reduce a number of pro-inflammatory cytokines including IL-6, the one reduced by other drugs being studied for COVID-19. Previous research also supports the idea that CBD can specifically reduce lung inflammation. The authors explain that this "Suggests its feasibility to reduce SARS-CoV2 induced lung inflammation/ pathology and disease severity."
 
-`/u/fluboy1257` [comments](https://www.reddit.com/r/Coronavirus/comments/ht5sxg/coronavirus_updates_366000_californians_infected/):
+`/u/End-of-Daisies` [comments](https://www.reddit.com/r/worldnews/comments/hvir4n/cannabis_may_reduce_deadly_covid19_lung/):
 
-> Californians, stay the fuck out of Oregon unless you wear a mask
+> I love how these articles always show someone in a lab coat staring intently at bit of bud they're holding in tweezers or a test tube or something, as if to say "Yessss. Yes. *This* is green."  
+> 
+> Thank god for stock photos of weed doctors.
 
 [Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
 
