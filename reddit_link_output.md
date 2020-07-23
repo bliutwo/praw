@@ -1,14 +1,14 @@
-# Cannabis May Reduce Deadly COVID-19 Lung Inflammation: Researchers Explain Why
+# Face shields did not protect people from the coronavirus in an outbreak in Switzerland, but masks did, health officials say
 
-Summary of [original article](https://www.forbes.com/sites/emilyearlenbaugh/2020/07/06/cannabis-may-reduce-deadly-covid-19-lung-inflammation-researchers-explain-why/):
+Summary of [original article](https://www.yahoo.com/news/face-shields-did-not-protect-150500925.html):
 
-> For one thing, the authors explain that previous research has shown that CBD can reduce a number of pro-inflammatory cytokines including IL-6, the one reduced by other drugs being studied for COVID-19. Previous research also supports the idea that CBD can specifically reduce lung inflammation. The authors explain that this "Suggests its feasibility to reduce SARS-CoV2 induced lung inflammation/ pathology and disease severity."
+> Health officials found that only people who wore plastic face shields were infected. A health department in Switzerland is now warning against wearing plastic face shields without a mask after a recent outbreak in which those wearing only shields were infected with coronavirus, while people wearing masks were fine. The WHO supports face shields as a tool to curb coronavirus spread, but warns that no face covering will stop the virus entirely.
 
-`/u/End-of-Daisies` [comments](https://www.reddit.com/r/worldnews/comments/hvir4n/cannabis_may_reduce_deadly_covid19_lung/):
+`/u/ahm713` [comments](https://www.reddit.com/r/worldnews/comments/hw3vsj/face_shields_did_not_protect_people_from_the/):
 
-> I love how these articles always show someone in a lab coat staring intently at bit of bud they're holding in tweezers or a test tube or something, as if to say "Yessss. Yes. *This* is green."  
+> > The infections were reported at a hotel in the Graübunden region, where several employees and at least one guest tested positive for the virus. Local health officials determined that all those infected had been wearing only plastic face shields as protection. **No one who had worn a face mask was infected**, according to officials. 
 > 
-> Thank god for stock photos of weed doctors.
+> Interesting
 
 [Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
 
