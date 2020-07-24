@@ -1,14 +1,14 @@
-# Face shields did not protect people from the coronavirus in an outbreak in Switzerland, but masks did, health officials say
+# U.S. officials defend Portland crackdown: 'We're not going to apologize'
 
-Summary of [original article](https://www.yahoo.com/news/face-shields-did-not-protect-150500925.html):
+Summary of [original article](https://www.reuters.com/article/us-global-race-protests-portland/u-s-officials-defend-portland-crackdown-were-not-going-to-apologize-idUSKCN24L1I1):
 
-> Health officials found that only people who wore plastic face shields were infected. A health department in Switzerland is now warning against wearing plastic face shields without a mask after a recent outbreak in which those wearing only shields were infected with coronavirus, while people wearing masks were fine. The WHO supports face shields as a tool to curb coronavirus spread, but warns that no face covering will stop the virus entirely.
+> WASHINGTON - Top Homeland Security officials said on Monday they had no intention of pulling back in Portland, Oregon, and defended the federal crackdown on anti-racism protests, including the use of unmarked cars and unidentified officers in camouflage. The Department of Homeland Security sent law enforcement units to Portland to back up the Federal Protective Service responsible for guarding U.S. government facilities after receiving intelligence about planned attacks around July 4, the DHS officials said. Portland Police early on Monday provided details on another tense night between protesters and federal law enforcement in the city, saying federal agents used tear gas to disperse a crowd that had gathered outside a federal courthouse downtown.
 
-`/u/ahm713` [comments](https://www.reddit.com/r/worldnews/comments/hw3vsj/face_shields_did_not_protect_people_from_the/):
+`/u/thoroakenfelder` [comments](https://www.reddit.com/r/news/comments/hunmac/us_officials_defend_portland_crackdown_were_not/):
 
-> > The infections were reported at a hotel in the Graübunden region, where several employees and at least one guest tested positive for the virus. Local health officials determined that all those infected had been wearing only plastic face shields as protection. **No one who had worn a face mask was infected**, according to officials. 
+> Anyone else feel like this is a test case, or proof of concept to show that we can have registered police and hit squads and people still won't look up from their phones?
 > 
-> Interesting
+> Edit: just realized that my phone changed secret police to registered police.
 
 [Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
 
