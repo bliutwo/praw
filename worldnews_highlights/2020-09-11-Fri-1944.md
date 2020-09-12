@@ -1,0 +1,106 @@
+# Today's Highlights from /r/worldnews
+
+Date and time of publication of these highlights: **Friday, September 11, 2020, 19:44**.
+
+## 'This is over the top': Lindsey Graham and Mick Mulvaney 'begged' Trump not to kill Iran's top general, but 4 days later he did it anyway, according to Woodward's new book
+
+Summary of [original article](https://www.businessinsider.com/lindsey-graham-mick-mulvaney-begged-trump-not-kill-soleimani-woodward-2020-9):
+
+> Trump and Graham were playing golf at the Trump International Golf Club in West Palm Beach, Florida, when Trump floated the idea. Graham pushed back, saying Soleimani has "Always been doing that." He added that Trump had to consider his response and what Iran might do in retaliation, especially "With the election coming." The Trump administration has not made public evidence that Soleimani posed an imminent threat to US forces in the region, which was its primary justification for the strike.
+
+`/u/DatDamGermanGuy` [comments](https://www.reddit.com/r/worldnews/comments/iqvqne/this_is_over_the_top_lindsey_graham_and_mick/):
+
+> “I think Trump has learned his lesson” - Susan Collins.
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## North Korea 'executes five Economic Ministry workers after they criticised Kim's policies at a dinner party'
+
+Summary of [original article](https://www.dailymail.co.uk/news/article-8723823/North-Korea-executes-five-Economic-Ministry-workers-criticised-Kims-policies.html):
+
+> North Korea has executed five Economic Ministry workers after they criticised Kim Jong-Un's policies, according to reports. The five men, who had been attending a dinner party, had openly discussed the stagnant economy in the militarised nation state as well as the need for industrial reform as it continues to produce few consumer goods for its impoverished citizens. It comes after it was reported that Kim Jong-Un displayed his uncle's head after executing the powerful general by firing squad. Advertisement.
+
+`/u/AutoModerator` [comments](https://www.reddit.com/r/worldnews/comments/iqyti7/north_korea_executes_five_economic_ministry/):
+
+> Users often report submissions from this site and ask us to ban it for sensationalized articles. At /r/worldnews, we oppose blanket banning any news source. Readers have a responsibility to be skeptical, check sources, and comment on any flaws.
+> 
+> You can help improve this thread by linking to media that verifies or questions this article's claims. Your link could help readers better understand this issue. If you do find evidence that this article or its title are false or misleading, contact the moderators who will review it
+> 
+> *I am a bot, and this action was performed automatically. Please [contact the moderators of this subreddit](/message/compose/?to=/r/worldnews) if you have any questions or concerns.*
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Japan's Defense Minister: China not a ‘concern’ for Japan. It is now a ‘security threat’
+
+Summary of [original article](http://www.asahi.com/ajw/articles/13717925):
+
+> Defense Minister Taro Kono went beyond the government's official stance by describing China as a "National security threat" to Japan. "But as defense minister, I must say China has become a security threat to Japan." The government has repeatedly voiced concerns about China's military advances in the South China Sea and other parts of the region, but Japan has not gone so far as to describe such moves as a threat.
+
+[comments](https://www.reddit.com/r/worldnews/comments/iqq71q/japans_defense_minister_china_not_a_concern_for/)
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Al-Qaeda threatens Charlie Hebdo for republishing Mohammed cartoons
+
+Summary of [original article](https://news.yahoo.com/al-qaeda-threatens-charlie-hebdo-204153548.html):
+
+> Al-Qaeda has threatened French satirical weekly Charlie Hebdo with a repeat of a 2015 massacre of its staff, after it republished controversial cartoons of the Prophet Mohammed, the SITE observatory said on Friday. Al-Qaeda in its publication One Ummah had warned that Charlie Hebdo would be mistaken if it believed the 2015 attack was a "One off", after the magazine printed the "Contemptible caricatures" in a defiant issue that marked the start of the trial in Paris of suspected accomplices in the attack. Charlie Hebdo's director Laurent Sourisseau, known as "Riss" and who was himself badly wounded in the shoulder in the attack, told the court this week that there was nothing to regret in publishing the cartoons.
+
+`/u/L3n777` [comments](https://www.reddit.com/r/worldnews/comments/iqzi0n/alqaeda_threatens_charlie_hebdo_for_republishing/):
+
+> Hey Al-Qaeda, there' s people cutting the genitals off little girls, which bothers you the most?
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Nigeria's Kaduna State passes law to castrate child rapists
+
+Summary of [original article](https://www.bbc.com/news/world-africa-54117462?xtor=AL-72-%5Bpartner%5D-%5Bbbc.news.twitter%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D&at_campaign=64&at_custom2=twitter&at_custom3=%40BBCWorld&at_custom4=8BC59800-F435-11EA-8EA3-2AE24744363C&at_medium=custom7&at_custom1=%5Bpost+type%5D):
+
+> Lawmakers in Nigeria's Kaduna State have approved surgical castration as punishment for those convicted of raping children under the age of 14. The move follows public outrage over a wave of rapes, which prompted the nation's state governors to declare a state of emergency. "In retrospect, if everyone that raped me was put through that other people that they might have also raped would have been spared the calamity," she said.
+
+`/u/pinkguyfriedrice` [comments](https://www.reddit.com/r/worldnews/comments/iqrzws/nigerias_kaduna_state_passes_law_to_castrate/):
+
+> Imagine being wrongly accused
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## A court in Spain has sentenced a former Salvadoran army colonel to 133 years in prison for the murder of five Spanish Jesuit priests in his homeland in 1989.
+
+Summary of [original article](https://www.bbc.com/news/world-europe-54126548):
+
+> AFP. A court in Spain has sentenced a former Salvadoran army colonel to 133 years in prison for the murder of five Spanish Jesuit priests in his homeland in 1989. The killings happened during El Salvador's civil war, when Catholic priests were often accused by the government of collaborating with left-wing rebels. Montano listened from a wheelchair as he was sentenced to 26 years, eight months and one day in prison for each of the five Spanish priests' deaths, the Associated Press news agency reports.
+
+`/u/ninetynine9-11s` [comments](https://www.reddit.com/r/worldnews/comments/ir05eg/a_court_in_spain_has_sentenced_a_former/):
+
+> The US backed contras, naturally
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Following UAE, Bahrain to normalize relations with Israel
+
+Summary of [original article](https://www.jpost.com/israel-news/trump-expected-to-announce-historic-bahrain-israel-normalization-agreement-641961):
+
+> Bahrain has joined the United Arab Emirates in striking an agreement to normalize relations with Israel, President Donald Trump said on Friday, a dramatic move aimed at easing tensions in the Middle East.Trump tweeted out the news after he spoke by phone to both Bahrain's King Hamad bin Isa Al Khalifa and Israeli Prime Minister Benjamin Netanyahu, the White House said. Donald J. Trump September 11, 2020 Trump also tweeted: "Another HISTORIC breakthrough today! Our two GREAT friends Israel and the Kingdom of Bahrain agree to a Peace Deal - the second Arab country to make peace with Israel in 30 days!" "This is a historic breakthrough to further peace in the Middle East," the United States, Bahrain and Israel said in a joint statement. Lahav Harkov September 11, 2020 Trump is going to host a signing ceremony next Tuesday that will include delegations with Israel and the UAE. His negotiators have been trying to get other Gulf nations, such as Bahrain and Oman, to join in normalizing relations with Israel.
+
+`/u/WizardTNT1` [comments](https://www.reddit.com/r/worldnews/comments/iqur9q/following_uae_bahrain_to_normalize_relations_with/):
+
+> Wonder who will be the next
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## A Chinese virologist who fled to the US after claiming China covered up the coronavirus outbreak has vowed to publish proof the virus was made in a lab.
+
+Summary of [original article](https://www.news.com.au/world/coronavirus/global/coronavirus-chinese-defector-claims-covid19-came-from-military-lab/news-story/69c3fabab4639548d2dcddb7059aab96):
+
+> Sorry, we were unable to get the summary of this article.
+
+`/u/AutoModerator` [comments](https://www.reddit.com/r/worldnews/comments/ir2zwo/a_chinese_virologist_who_fled_to_the_us_after/):
+
+> Users often report submissions from this site and ask us to ban it for sensationalized articles. At /r/worldnews, we oppose blanket banning any news source. Readers have a responsibility to be skeptical, check sources, and comment on any flaws.
+> 
+> You can help improve this thread by linking to media that verifies or questions this article's claims. Your link could help readers better understand this issue. If you do find evidence that this article or its title are false or misleading, contact the moderators who will review it
+> 
+> *I am a bot, and this action was performed automatically. Please [contact the moderators of this subreddit](/message/compose/?to=/r/worldnews) if you have any questions or concerns.*
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+

@@ -1,0 +1,116 @@
+# Today's Highlights from /r/news
+
+Date and time of publication of these highlights: **Friday, September 11, 2020, 19:44**.
+
+## "Climate damn emergency": Gov. Newsom signs bill to allow ex-inmates to become firefighters
+
+Summary of [original article](https://www.fox10phoenix.com/news/climate-damn-emergency-gov-newsom-signs-bill-to-allow-ex-inmates-to-become-firefighters):
+
+> Calif. - Standing in the center of a burned-out forest in Butte County, California Gov. Gavin Newsom on Friday gave an impassioned speech about climate change and he paved the way for formerly incarcerated people to become professional firefighters. For Biden, the spreading fires are a reminder to the party's progressive base that he doesn't embrace some of the most liberal elements of the Green New Deal, the grand plan for tackling climate change. "The Biden campaign understands that a full embrace of an aggressive climate change agenda could create problems for them in Upper Midwest," said Dan Schnur, who served as an adviser to former California Gov. Pete Wilson and Arizona Sen. John McCain.
+
+`/u/impulsekash` [comments](https://www.reddit.com/r/news/comments/iqyna1/climate_damn_emergency_gov_newsom_signs_bill_to/):
+
+> About fucking time.  Ex-inmate can get a job *and* serve their communities as firefighters. I have no idea why this took so long to pass.
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## New Jersey governor declares Juneteenth a public holiday
+
+Summary of [original article](https://www.nbcnews.com/news/amp/ncna1239850#click=https://t.co/WS5HlZsWfZ):
+
+> Sorry, we were unable to get the summary of this article.
+
+`/u/AdmiralAkbar1` [comments](https://www.reddit.com/r/news/comments/iqw7km/new_jersey_governor_declares_juneteenth_a_public/):
+
+> It's a bit weird how Juneteenth is the one emancipation-related holiday that other states are latching onto, despite it being about the emancipation of the slaves in Texas. I'd have expected something like April 9th (date of Robert E. Lee's surrender in 1865), September 22nd (date the Emancipation Proclamation was issued in 1863) or December 6 (date the 13th Amendment was ratified in 1865) to get more national traction.
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## A young boy was found dead with his dog in his lap after trying to escape Oregon wildfire
+
+Summary of [original article](https://www.cnn.com/2020/09/11/us/oregon-wildfire-victim-trnd/index.html?utm_source=feedburner&utm_medium=feed&utm_campaign=Feed%3A+rss%2Fcnn_topstories+%28RSS%3A+CNN+-+Top+Stories%29):
+
+> Sorry, we were unable to get the summary of this article.
+
+`/u/BamboozledMyself` [comments](https://www.reddit.com/r/news/comments/ir05ak/a_young_boy_was_found_dead_with_his_dog_in_his/):
+
+> The world is a messed up place...
+> 
+> May the boy and the dog be forever together
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Justices reject bid by Kanye West to get on Ohio ballot
+
+Summary of [original article](https://www.ctvnews.ca/entertainment/justices-reject-bid-by-kanye-west-to-get-on-ohio-ballot-1.5100937?taid=5f5ba61bca23fc0001de96f4&utm_campaign=trueAnthem%3A+Trending+Content&utm_medium=trueAnthem&utm_source=twitter):
+
+> Sorry, we were unable to get the summary of this article.
+
+`/u/SufficientlyWingdBat` [comments](https://www.reddit.com/r/news/comments/iqtxts/justices_reject_bid_by_kanye_west_to_get_on_ohio/):
+
+> Why do people love narcicists and sociopaths so much
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Video shows deputy allegedly burglarizing dead man’s home in California
+
+Summary of [original article](https://globalnews.ca/news/7328680/deputy-burglary-orange-county-video/):
+
+> A California sheriff's deputy has been accused of playing both cop and burglar, in a bizarre case that was captured by surveillance cameras at a dead man's home in Orange County. Hortz then allegedly returned to the unoccupied home three times over the course of a month and exited "With stolen property," the Orange County Sheriff's Office said in a statement. The video shows the suspect leaving the home with two ceiling fans, then wheeling a safe out on a dolly.
+
+`/u/bassman9999` [comments](https://www.reddit.com/r/news/comments/iqxfpp/video_shows_deputy_allegedly_burglarizing_dead/):
+
+> *Hortz was still being paid after his arrest, KTLA reports, but the sheriff’s office is looking into placing him on unpaid leave.*
+> 
+> 
+> 
+> Still getting paid!?!?  Da fuc is this shit!
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Kids caught the coronavirus at childcare centers and infected family members, CDC report says
+
+Summary of [original article](https://www.cnbc.com/2020/09/11/kids-caught-coronavirus-at-childcare-infected-family-cdc-report-says.html):
+
+> Sorry, we were unable to get the summary of this article.
+
+`/u/Whornz4` [comments](https://www.reddit.com/r/news/comments/iqyalw/kids_caught_the_coronavirus_at_childcare_centers/):
+
+> Get ready for this to be a perpetual headline in the coming months.
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Texas police group puts up billboard warning "enter at your own risk," saying Austin defunded police
+
+Summary of [original article](https://www.cbsnews.com/news/austin-texas-defund-police-billboard-i-35/?ftag=CNM-00-10aab7e&linkId=99367475):
+
+> The Texas Municipal Police Association has put up two billboards along Interstate 35 entering Austin after the city council voted last month to cut the Austin police budget. One of them reads: "Warning! Austin defunded police. Enter at your own risk!". In Austin, the city council approved a $150 million cut in funding to the Austin Police Department last month, with the majority of money being redirected to other departments and social services, according to CBS Austin.
+
+`/u/hairy_butt_creek` [comments](https://www.reddit.com/r/news/comments/iqqby8/texas_police_group_puts_up_billboard_warning/):
+
+> What's funny is Austin didn't really defund much of anything. The only thing the city cut from APD is the upcoming cadet class. That's it. 
+> 
+> The city did move some services under the purview of APD into a new department or an existing department. Two big examples are 911 services and forensics services. Now if you look at Austin's org chart they don't fall under APD and our (incompetent) Chief. I like the moves since it offers independence to crime related services that should be independent from the police. Moving 911 away from APD "defunds" it about $25,000,000 for example but the city is bumping up $25,000,000 in another department or funding a new one with that amount. It's all semantics. 
+> 
+> The City of Austin is taking the money from the cadet class and increasing the number of other first responders such as EMS and mental health experts who will be first responders. Also the City of Austin is facing a homelessness crisis which, surprise, takes a lot of APD's time and effort. The city is helping expand homeless services which will in theory take some of the workload off our police. 
+> 
+> Frankly I'm not too sure where this defunded news came from. Most of it is just boring ass org-chart changes. The right really ran with it being defunded and I'm guessing a few of our left-leaning city council members were also happy with the defund narrative but regardless of narrative it's highly exaggerated. Every election year Republicans look to fear monger so if this happened a year ago or next year it would have been an article or two in the local news and that'd be the end of it. APD's "defunding police" is this year's migrant caravan.
+> 
+> Edit: This Google Doc breaks down APD's budget. One side, "Reductions, Decoupling, and Transition" speaks of the cuts and programs decoupled from APD. As you can see $80,000,000 of the $150,000,000 cut is just taking power away from APD and moving responsibilities elsewhere. On the other side, "Reinvestments", you can see new or expanded programs. 
+> 
+> https://docs.google.com/spreadsheets/d/1F95cQrX9RUwjM4Ryfuu2FD5Q5jDlVSWKVvTY-KfdGW4/edit#gid=1764730827
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Americans need to 'hunker down' this fall and winter as COVID-19 pandemic will likely worsen, Fauci says
+
+Summary of [original article](https://www.ctvnews.ca/health/coronavirus/americans-need-to-hunker-down-this-fall-and-winter-as-covid-19-pandemic-will-likely-worsen-fauci-says-1.5100832):
+
+> Nearly 30 U.S. states are reporting downward trends in COVID-19 cases, but the pandemic will likely worsen again, according to the country's leading infectious disease expert. "We need to hunker down and get through this fall and winter because it's not going to be easy," Dr. Anthony Fauci said Thursday. INFECTED COLLEGE STUDENTS SHOULDN'T BE SENT HOME. Colleges across the country have made face masks a requirement hoping to keep COVID-19 cases down.
+
+`/u/boobs675309` [comments](https://www.reddit.com/r/news/comments/iqqn1z/americans_need_to_hunker_down_this_fall_and/):
+
+> When the shit started hitting the fan in March, I definitely had anxiety about it and hunkered down like I was in a radiation shelter. But hunkering down for a pandemic is really just avoiding restaurants and bars and wearing a mask when you go out. Be relatively safe about it and you should be fine.
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
