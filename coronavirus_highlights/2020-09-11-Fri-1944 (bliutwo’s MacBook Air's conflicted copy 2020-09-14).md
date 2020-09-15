@@ -1,0 +1,92 @@
+# Today's Highlights from /r/coronavirus
+
+Date and time of publication of these highlights: **Friday, September 11, 2020, 19:44**.
+
+## Join the official Coronavirus Community Discord with live data and discussion :)
+
+Summary of [original article](https://discord.gg/coronavirus):
+
+> Sorry, we were unable to get the summary of this article.
+
+`/u/BurrShotFirst1804` [comments](https://www.reddit.com/r/Coronavirus/comments/imr9o8/join_the_official_coronavirus_community_discord/):
+
+> Sorry. Bad coordination on our part. I gotta sticky our mod application post.
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Fauci "depressed" U.S. can't get new coronavirus cases down: "We're still in the first surge"
+
+Summary of [original article](https://www.newsweek.com/fauci-depressed-new-coronavirus-cases-first-wave-1531223):
+
+> Sorry, we were unable to get the summary of this article.
+
+`/u/BumblesAZ` [comments](https://www.reddit.com/r/Coronavirus/comments/iqq63e/fauci_depressed_us_cant_get_new_coronavirus_cases/):
+
+> Fauci described the current situation as "whack-a-mole," where one state improves and another worsens.
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Kids caught coronavirus at childcare centers and infected family members, new CDC report says
+
+Summary of [original article](https://www.cnbc.com/2020/09/11/kids-caught-coronavirus-at-childcare-infected-family-cdc-report-says.html):
+
+> Sorry, we were unable to get the summary of this article.
+
+`/u/JimGerm` [comments](https://www.reddit.com/r/Coronavirus/comments/iqyneg/kids_caught_coronavirus_at_childcare_centers_and/):
+
+> Kids are great and all, but there is nothing more dirty and germ ridden as a kid.  It's not their fault, they're just kids, but you can't ask them to be careful and not spread anything because, once again, they're just kids.
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Persistent Lung Damage Improves Gradually After COVID-19
+
+Summary of [original article](https://www.medscape.com/viewarticle/937263):
+
+> Sorry, we were unable to get the summary of this article.
+
+`/u/autofill34` [comments](https://www.reddit.com/r/Coronavirus/comments/ir1vd5/persistent_lung_damage_improves_gradually_after/):
+
+> Lots of redditMDs scoffing at the idea that lungs can ever have permanent damage 
+> 
+> Look a lot of people are recovering but this is new and the outcomes of a lot of patients are still unknown. Some people have permanent damage, some don't. And we're not exactly sure which is which until enough people recover which is why these studies are important. It's not "obvious" at all. This is a very strange virus, it's not like other girls.
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## ‘Oh My Gosh’: Cop Shocked When College Students Reveal House Party Attendees Have Covid (VIDEO)
+
+Summary of [original article](https://www.mediaite.com/news/oh-my-gosh-cop-shocked-when-college-students-reveal-house-party-attendees-have-covid-video/):
+
+> Body-cam video from the Oxford, Ohio police department captured a rather stunning exchange between authorities and Miami University students who were throwing a house party despite several people in said house having recently tested positive for coronavirus. On Thursday, WOIO reports, the police cited six people who were at the house party just a few days ago. WATCH: While hosting a large house party, Miami University students admit to police they recently tested positive for COVID-19 https://t.
+
+`/u/wrldruler21` [comments](https://www.reddit.com/r/Coronavirus/comments/ir0gf9/oh_my_gosh_cop_shocked_when_college_students/):
+
+> >When he asks if anyone else there has Covid, the student responds, “They all have it.”
+> 
+> Well, if they maintain a house bubble, I guess the house can party.
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Firefighter dies of COVID-19 before wedding day
+
+Summary of [original article](https://www.wral.com/coronavirus/he-swept-me-off-my-feet-lee-county-firefighter-dies-of-covid-19-before-wedding-day/19281457/):
+
+> One North Carolina family gives a glimpse of what might have been for a firefighter in Lee County - one of the thousands who have died. In a statement on Friday, the Lemon Springs Volunteer Fire Department joined others in expressing sadness over Reed's death. "Herman Reed was a faithful and dedicated member of the Lemon Springs Volunteer Fire Department for ten years and four months. In his time on the fire department, he served the community selflessly and courageously, always there to lend a helping hand to his fellow fire department family and to the community he cherished so much. Firefighter Reed always had a smile on his face and would ensure that anyone around him would as well. He was a man that never met a stranger and could get along with anyone. Firefighter Reed will truly be missed by the Lemon Springs Volunteer Fire Department."
+
+`/u/Commandmanda` [comments](https://www.reddit.com/r/Coronavirus/comments/ir38u0/firefighter_dies_of_covid19_before_wedding_day/):
+
+> It's hard to say this, but...If his fiance wore her mask like this all the time...Well.
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Nebraska to end nearly all social distancing restrictions
+
+Summary of [original article](https://apnews.com/e280640ba95931e6020e21a974b11396):
+
+> Nebraska Gov. Pete Ricketts will end nearly all of his state's social-distancing restrictions on Monday even as the number of new coronavirus cases has trended upward over the last few months. The new rules will apply statewide except in Lancaster County, which includes the state capital of of Lincoln, home to the University of Nebraska's flagship campus. Nebraska has confirmed 36,917 coronavirus cases and 421 deaths since the pandemic began, according to the state's tracking portal.
+
+`/u/45257540` [comments](https://www.reddit.com/r/Coronavirus/comments/iquovu/nebraska_to_end_nearly_all_social_distancing/):
+
+> Of course Nebraska is largely rural land area (about 99%), but per last census 73% of the population lives in urban areas.
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+

@@ -1,0 +1,112 @@
+# Today's Highlights from /r/worldnews
+
+Date and time of publication of these highlights: **Sunday, September 13, 2020, 10:07**.
+
+## A 26 year old US woman has acted as super spreader for one of Germany's currently largest outbreak of Covid-19 when she visited multiple clubs and bars in one evening despite showing coronavirus-like symptoms.
+
+Summary of [original article](https://pledgetimes.com/coronavirus-us-citizen-as-a-super-spreader-in-garmisch-welt/):
+
+> Sorry, we were unable to get the summary of this article.
+
+`/u/Joker101018` [comments](https://www.reddit.com/r/worldnews/comments/iryxif/a_26_year_old_us_woman_has_acted_as_super/):
+
+> If she knew about it, then she should be arrested it's as simple as that.
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Chinese military calls US biggest threat to world peace
+
+Summary of [original article](https://www.latimes.com/world-nation/story/2020-09-12/chinese-military-calls-us-biggest-threat-to-world-peace):
+
+> China's Defense Ministry on Sunday blasted a critical U.S. report on the country's military ambitions, saying it is the U.S. instead that poses the biggest threat to the international order and world peace. The statement follows the Sept. 2 release of the annual Defense Department report to Congress on Chinese military developments and goals that it said would have "Serious implications for U.S. national interests and the security of the international rules-based order." "We call on the U.S. to view China's national defense and military construction objectively and rationally, cease making false statements and related reports, and take concrete actions to safeguard the healthy development of bilateral military relations."
+
+`/u/swollenpork` [comments](https://www.reddit.com/r/worldnews/comments/irwsgh/chinese_military_calls_us_biggest_threat_to_world/):
+
+> “Listen to our propaganda instead of looking at our Uighur concentration camps.”
+> 
+> -China, 2020
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Giuliani Pleads Ignorance On Bombshell Report That His Ukraine Contact Is A Russian Spy
+
+Summary of [original article](https://www.huffpost.com/entry/andrii-derkach-rudy-giuliani-trump-russian-spy_n_5f5d69a4c5b6b485080163cc):
+
+> Sorry, we were unable to get the summary of this article.
+
+`/u/wwarnout` [comments](https://www.reddit.com/r/worldnews/comments/irya8a/giuliani_pleads_ignorance_on_bombshell_report/):
+
+> "Giuliani pleads ignorance" is the first honest thing he has said in years.
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Boris Johnson 'plans to opt out of human rights laws' amid Brexit row
+
+Summary of [original article](https://www.independent.co.uk/news/uk/politics/brexit-human-rights-act-uk-europe-convention-boris-johnson-b433013.html):
+
+> Boris Johnson is planning to opt out of parts of the Human Rights Act, according to reports. A review of human rights laws has been carried out across Whitehall and its findings will be announced "In the coming weeks", the Daily Telegraph reported. The possibility of opting out of the Human Rights Act once Britain had left the EU was raised when Theresa May was prime minister.
+
+`/u/AutoModerator` [comments](https://www.reddit.com/r/worldnews/comments/iruye9/boris_johnson_plans_to_opt_out_of_human_rights/):
+
+> Users often report submissions from this site and ask us to ban it for sensationalized articles. At /r/worldnews, we oppose blanket banning any news source. Readers have a responsibility to be skeptical, check sources, and comment on any flaws.
+> 
+> You can help improve this thread by linking to media that verifies or questions this article's claims. Your link could help readers better understand this issue. If you do find evidence that this article or its title are false or misleading, contact the moderators who will review it
+> 
+> *I am a bot, and this action was performed automatically. Please [contact the moderators of this subreddit](/message/compose/?to=/r/worldnews) if you have any questions or concerns.*
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Stephen Fry, Mark Rylance and a former Archbishop of Canterbury are among 150 public figures to hit back at government moves to classify the climate protesters of Extinction Rebellion as an “organised crime group”.
+
+Summary of [original article](https://www.theguardian.com/environment/2020/sep/12/stephen-fry-and-mark-rylance-join-defence-of-climate-activists-extinction-rebellion):
+
+> Stephen Fry, Mark Rylance and a former Archbishop of Canterbury are among 150 public figures to hit back at government moves to classify the climate protesters of Extinction Rebellion as an "Organised crime group". Starmer said: "The free press is the cornerstone of democracy and we must do all we can to protect it. Denying people the chance to read what they choose is wrong and does nothing to tackle climate change." And last week Guardian News and Media stated: "We fully support the right to protest - but we do not condone any action that restricts the public's right to access journalism and buy whichever newspaper they choose." Today's letter states: "Extinction Rebellion has helped push the government's failure to act on the climate and ecological emergency into the public eye. Whether or not we agree with their tactics or targets, by blocking printing presses and delaying newspaper distribution, they have connected the dots of a broken system. For the past 30 years, there's been a woeful lack of serious reporting on the climate and ecological emergency due to the billionaire owners' vested interests, and a lack of understanding from reporters, to editors to senior executives, about the severity and scale of the crisis. This has meant a terrifying delay on action to combat climate change."
+
+`/u/loveandcustard` [comments](https://www.reddit.com/r/worldnews/comments/irx2xr/stephen_fry_mark_rylance_and_a_former_archbishop/):
+
+> The right to protest is fundamental human right when our future survival is at stake... keep up the fight so our future generations can enjoy this beautiful planet as we do...
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Disposable masks 'causing enormous plastic waste'
+
+Summary of [original article](https://www.bbc.co.uk/news/uk-politics-54057799):
+
+> Catherine Gemmell MCS The government has been urged to do more to get people to switch from disposable masks to reusable coverings. The Liberal Democrats said single-use surgical masks caused "Enormous" plastic waste and that environmentally friendly alternatives must be promoted. Disposable masks contain plastics which pollute water and can harm wildlife who eat them or become tangled in them.
+
+`/u/sekiseki` [comments](https://www.reddit.com/r/worldnews/comments/irvm0r/disposable_masks_causing_enormous_plastic_waste/):
+
+> Don't forget the single use plastics when people eat more takeaway and rather than eating out now.
+> 
+> It's gonna add up. Or it already has.
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## Coronavirus: Cases in France leap past 10,000 a day
+
+Summary of [original article](https://www.bbc.co.uk/news/world-europe-54137319):
+
+> France has reported a record daily increase in coronavirus cases as the country struggles to contain a fresh surge in infections. On Saturday health authorities said there were 10,561 new cases, rising by more than 1,000 from Friday's figures. France is one of several European countries to see a surge in new cases.
+
+`/u/ArdenSix` [comments](https://www.reddit.com/r/worldnews/comments/irxkyq/coronavirus_cases_in_france_leap_past_10000_a_day/):
+
+> What the fuck Europe? Didn't you guys watch the US melt down all summer long and make fun of them?  For what? To go out and try to out do them yourselves??
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
+## 39,000-year-old cave bear is discovered perfectly preserved in Siberia | "It is completely preserved, with all internal organs in place." Until now, only bones have been found of cave bears, a prehistoric species or subspecies that lived in Eurasia from around 300,000 to 15,000 years ago
+
+Summary of [original article](https://www.dailymail.co.uk/news/article-8725911/39-000-year-old-cave-bear-discovered-perfectly-preserved-Siberia.html):
+
+> Sorry, we were unable to get the summary of this article.
+
+`/u/AutoModerator` [comments](https://www.reddit.com/r/worldnews/comments/irnwqg/39000yearold_cave_bear_is_discovered_perfectly/):
+
+> Users often report submissions from this site and ask us to ban it for sensationalized articles. At /r/worldnews, we oppose blanket banning any news source. Readers have a responsibility to be skeptical, check sources, and comment on any flaws.
+> 
+> You can help improve this thread by linking to media that verifies or questions this article's claims. Your link could help readers better understand this issue. If you do find evidence that this article or its title are false or misleading, contact the moderators who will review it
+> 
+> *I am a bot, and this action was performed automatically. Please [contact the moderators of this subreddit](/message/compose/?to=/r/worldnews) if you have any questions or concerns.*
+
+[Why am I seeing this on Google Docs?](https://docs.google.com/document/d/1Dc6We63vOXIZsc0op-Bt4abqkYjXzOigalQqFxmvvbM/edit?usp=sharing)
+
