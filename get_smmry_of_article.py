@@ -6,6 +6,7 @@ def get_summary(url: str, api_key: str, smrry) -> str:
     try:
         s = smrry.summarize(url,sm_length=3)
         summary = s.sm_api_content
+        summary = summary.replace(". ", ".\n")
     except:
         summary = "ERROR: "
         summary += str(sys.exc_info()[0])
