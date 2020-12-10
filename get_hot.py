@@ -108,7 +108,7 @@ def get_hot(subreddit_name: str):
             output_string += title
             output_string += "\n\n"
             url = submission.url
-            if "png" or "jpg" in url:
+            if "png" in url or "jpg" in url:
                 output_string += "<img src=\""
                 output_string += url
                 output_string += "\">"
