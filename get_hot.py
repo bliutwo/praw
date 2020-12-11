@@ -108,19 +108,14 @@ def get_hot(subreddit_name: str):
             output_string += title
             output_string += "\n\n"
             url = submission.url
-            if "png" in url or "jpg" in url:
-                output_string += "<img src=\""
-                output_string += url
-                output_string += "\">"
-            else:
-                output_string += "Summary of [original article]("
-                output_string += url
-                output_string += "):\n\n"
-                summary = get_smmry_of_article.get_summary(url, api_key, smmry)
-                if "ERROR:" in summary:
-                    summary = "Sorry, we were unable to get the summary of this article."
-                output_string += "> "
-                output_string += summary
+            output_string += "Summary of [original article]("
+            output_string += url
+            output_string += "):\n\n"
+            summary = get_smmry_of_article.get_summary(url, api_key, smmry)
+            if "ERROR:" in summary:
+                summary = "Sorry, we were unable to get the summary of this article."
+            output_string += "> "
+            output_string += summary
             output_string += "\n\n"
             if top_comment and top_comment_author:
                 username = "`/u/"
