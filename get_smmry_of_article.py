@@ -9,8 +9,6 @@ def get_summary(url: str, api_key: str, smrry) -> str:
     except:
         summary = "ERROR: "
         summary += str(sys.exc_info()[0])
-        print("Tried: %s", url)
-        print(sys.exec_info()[0])
     return summary
 
 
