@@ -113,7 +113,12 @@ def get_hot(subreddit_name: str):
             output_string += "):\n\n"
             summary = get_smmry_of_article.get_summary(url, api_key, smmry)
             if "ERROR:" in summary:
+                error_message = summary
                 summary = "Sorry, we were unable to get the summary of this article."
+                summary += " "
+                summary += "("
+                summary += error_message
+                summary += ")"
             output_string += "> "
             output_string += summary
             output_string += "\n\n"
