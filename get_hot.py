@@ -100,9 +100,13 @@ def get_hot(subreddit_name: str):
                 top_comment = top_comment.replace('\n', '\n> ').replace('\r', '')
                 top_comment_author = top_level_comments[0].author.name
             if top_comment and (("As a reminder, this subreddit" in top_comment) or ("I am a bot" in top_comment)):
-                top_comment = top_level_comments[1].body
-                top_comment = top_comment.replace('\n', '\n> ').replace('\r', '')
-                top_comment_author = top_level_comments[1].author.name
+                try:
+                    top_comment = top_level_comments[1].body
+                    top_comment = top_comment.replace('\n', '\n> ').replace('\r', '')
+                    top_comment_author = top_level_comments[1].author.name
+                except:
+                    top_comment = "Unable to get top comment."
+                    top_comment_author = "(none)"
             output_string = ""
             output_string += "## "
             output_string += title
