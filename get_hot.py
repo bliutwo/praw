@@ -90,7 +90,7 @@ def get_hot(subreddit_name: str):
 
     for submission in submissions:
         title = submission.title
-        if "Daily Discussion" not in title and "Looking For Participants" not in title and "Join our Official Discord" not in title and "For US Patients Diagnosed" not in title and "Clinical study in Austin, TX" not in title and "Join our official Coronavirus" not in title and "Personal Thread" not in title and "Discussion Thread" not in title:
+        if "Daily Discussion" not in title and "Looking For Participants" not in title and "Join our Official Discord" not in title and "For US Patients Diagnosed" not in title and "Clinical study in Austin, TX" not in title and "Join our official Coronavirus" not in title and "Personal Thread" not in title and "Discussion Thread" not in title and "American Society for Virology" not in title:
             submission.comment_sort = "top"
             top_level_comments = list(submission.comments)
             top_comment = None
